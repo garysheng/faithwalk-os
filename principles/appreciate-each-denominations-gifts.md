@@ -1,6 +1,6 @@
 # Appreciate Each Denomination’s Gifts
 
-Orthodox traditions, Catholic scholarship, Baptist gospel music, Pentecostal spiritual gifts, Latter-day Saint community building, Lutheran Bible study.
+*Orthodox traditions, Catholic scholarship, Baptist gospel music, Pentecostal spiritual gifts, Latter-day Saint community building, Lutheran Bible study.*
 
 What should Christians learn from different denominations while avoiding denominational idolatry?
 

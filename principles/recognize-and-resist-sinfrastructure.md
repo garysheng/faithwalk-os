@@ -1,10 +1,12 @@
 # Recognize and Resist Sinfrastructure
 
+*Dating apps that commodify connection. Social media that monetizes envy, wrath, and pride. Sports betting apps that turn phones into casinos.*
+
 What do we call technology and laws that make sin feel natural, accessible, and profitable while making righteousness feel difficult, outdated, and heroic?
 
-Examples include dating apps that commodify connection, social media that monetizes envy, wrath, and pride, and sports betting apps that turn phones into casinos.
+"Satanic infrastructure" or "sinfrastructure."
 
-We should call this "satanic infrastructure" or "sinfrastructure." The value of naming these systems is that when you can identify the system, you can choose to stop building them and stop participating in their growth.
+The value of naming these systems is that when you can identify the system, you can choose to stop building them and stop participating in their growth.
 
 Unlike overt persecution of Christians, sinfrastructure operates through convenience, normalization, and economic incentives. It doesn't ban Christianity; it makes Christian living impractical. It doesn't outlaw virtue; it makes vice more profitable.
 

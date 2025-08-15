@@ -28,10 +28,10 @@ The shift is noticeable. When you connect with God through music, it becomes one
 
 ## Some Musical Recommendations by Style
 
-**Traditional Gospel:** Mahalia Jackson, CeCe Winans
-**Contemporary Gospel:** Tauren Wells, Sunday Service Choir
-**Contemporary Worship:** Hillsong, Bethel Music
-**Classical Sacred:** Bach, Handel, Mozart's sacred works
+- **Traditional Gospel:** Mahalia Jackson, CeCe Winans
+- **Contemporary Gospel:** Tauren Wells, Sunday Service Choir
+- **Contemporary Worship:** Hillsong, Bethel Music
+- **Classical Sacred:** Bach, Handel, Mozart's sacred works
 
 No denomination has a monopoly on great Christian music. Explore different styles and find what connects your heart to God's frequency.
 

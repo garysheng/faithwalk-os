@@ -36,6 +36,8 @@ There are two ways to make a living: the atheistic way of toil and strain, or th
 
 The Holy Spirit provides daily guidance through prayer, scripture, and circumstances. Prayer is continuous communication throughout the day, not just formal moments. When your spirit is clean—free from sin, ego, and worldly attachments—spiritual discernment becomes automatic.
 
+Music carries spiritual frequency that affects your connection to God. Your heart receives whatever frequency you feed it—dark music programs dark thoughts, while Christ-centered music strengthens your faith and advances your ministry. Choose sounds that align your heart with Heaven's frequency. *[See: Listen to Heavenly Music](principles/listen-to-heavenly-music.md)*
+
 Miracles happen in this temporary realm: healing, prophecy, controlling nature, reading minds, seeing across time and space. TMH speaks to those who can steward revelation—the pure in heart, humble, obedient, reliable, and patient. If He can trust you with a whisper, He will trust you with more.
 
 ## The Biblical Foundation

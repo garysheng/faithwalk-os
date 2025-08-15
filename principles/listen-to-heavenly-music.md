@@ -20,7 +20,9 @@ Your heart receives whatever frequency you feed it. Dark music programs dark tho
 
 ## My Transformation Through Christian Music
 
-I haven't been a Christian that long, so listening to Christian music was new territory for me. One of my most important experiences was watching Kanye West's Sunday Service in 2021—being part of a massive gathering of people worshipping the divine through music.
+I haven't been a Christian that long, so listening to Christian music was new territory for me. One of my most important experiences was watching Kanye West's Sunday Service in 2021 on YouTube. Watching the dozens of gospel singers worshipping the divine through music forced me to open up to the Lord.
+
+"None of this is an accident," I started to realize.
 
 Gospel music, especially Baptist traditions, carries authentic spiritual power. I've become a fan of beautiful worship music, Christian rock like Hillsong, and Christian-inspired ambient music.
 
@@ -36,6 +38,8 @@ The shift is noticeable. When you connect with God through music, it becomes one
 No denomination has a monopoly on great Christian music. Explore different styles and find what connects your heart to God's frequency.
 
 We've crossed a threshold where there's sufficient high-quality Christian music available that eliminates excuses for listening to spiritually problematic content. The abundance of good options means you don't have to choose between artistic quality and spiritual health.
+
+Worth noting that many people doing Christian music are still operating in pride and seeking glory for themselves rather than God. Does this taint the spiritual impact of the music? Probably.
 
 ## Recognition and Practice
 

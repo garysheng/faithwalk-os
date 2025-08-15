@@ -40,7 +40,7 @@ Miracles happen in this temporary realm: healing, prophecy, controlling nature, 
 
 ## The Biblical Foundation
 
-The Bible is TMH's instructions on reality's nature and what you're called to do as His creation. It's dense with parables and symbolic language, decoded through mentors and the Holy Spirit as you grow in obedience. Different Christian groups include different books with different translations, but commonalities include worship, baptism, communion, and fellowship.
+The Bible is TMH's instructions on reality's nature and what you're called to do as His creation. It's dense with parables and symbolic language, decoded through mentors and the Holy Spirit as you grow in obedience. Different Christian groups include different books with different translations, but commonalities include worship, baptism, communion, and fellowship. *[See: Appreciate Each Denomination's Gifts](principles/appreciate-each-denominations-gifts.md)*
 
 Baptism through both water and fire is essential for spiritual rebirth and identification with Christ's death and resurrection. Holy Communion is Christ's direct command—eating His flesh and drinking His blood gives eternal life and creates abiding union with Him. Demons will do anything to prevent these because they know how powerful this unity with Christ is.
 

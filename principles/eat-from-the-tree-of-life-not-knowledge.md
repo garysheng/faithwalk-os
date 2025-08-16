@@ -16,7 +16,7 @@ One way tends to produce anxiety, competition, and eventual burnout—even when 
 | I determine my story's outcome | God determines my story's outcome |
 | Money and achievements are my security | God is my security and provider |
 | Always anxious, always grinding | Let tomorrow worry about itself |
-| "If I don't handle it, no one will" | "God will take care of what matters" |
+| If I don't handle it, no one will | God will take care of what matters |
 
 ## Why the Knowledge System Feels Safer
 

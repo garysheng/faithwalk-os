@@ -26,6 +26,8 @@ The enemy operates through "sinfrastructure"—systems designed to make sin feel
 
 Evil rarely asks for your soul upfront. It asks for your silence, your compromise, your comfort with injustice. Most people drift into complicity rather than choosing it outright.
 
+For practical steps to disentangle from cultural systems—and from relationships and rhythms that keep you compromised—*[see: Sever Your Ties With Modern Culture](principles/sever-your-ties-with-modern-culture.md).* 
+
 ## The Two Masters Problem
 
 Matthew 6:24 reveals the core issue: "No one can serve two masters." You cannot worship money while wanting TMH's favor. You cannot serve TMH while optimizing for worldly approval. These competing loyalties create internal contradiction that destroys spiritual clarity and practical effectiveness.

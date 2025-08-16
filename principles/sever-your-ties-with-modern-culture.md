@@ -16,7 +16,7 @@ In Austin and Denver, it's psychedelic use disguised as spiritual enlightenment.
 
 Be very careful about the cultures you surround yourself with. Even in Texas, with churches on every corner, I've found it remarkably hard to find people as serious about their walk with God as I hope to be.
 
-We've fallen far from the way of the Tree of Life, and the culture tells us this is just "being human." That sin is normal because we're all fallen.
+We've fallen far from the [way of the Tree of Life](eat-from-the-tree-of-life-not-knowledge.md), and the culture tells us this is just "being human." That sin is normal because we're all fallen.
 
 Sin doesn't have to be normal. It doesn't have to be your default. Unholy culture dominates because leaders have rejected God's design for human flourishing.
 

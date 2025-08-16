@@ -42,7 +42,18 @@ Miracles happen in this temporary realm: healing, prophecy, controlling nature, 
 
 ## The Biblical Foundation
 
-The Bible is TMH's instructions on reality's nature and what you're called to do as His creation. It's dense with parables and symbolic language, decoded through mentors and the Holy Spirit as you grow in obedience. Different Christian groups include different books with different translations, but commonalities include worship, baptism, communion, and fellowship. *[See: Appreciate Each Denomination's Gifts](principles/appreciate-each-denominations-gifts.md)*
+The Bible is TMH's instructions on reality's nature and what you're called to do as His creation. It's dense with parables and symbolic language, decoded through spiritual elders and the Holy Spirit as you grow in obedience. *[See: Study Wise Spiritual Elders](principles/study-wise-spiritual-elders.md)*
+
+Different Christian groups include different books with different translations.
+
+While there are many denominations of Christianity, commonalities include worship, baptism, communion, and fellowship. *[See: Appreciate Each Denomination's Gifts](principles/appreciate-each-denominations-gifts.md)*
+
+Biblical reading principles I follow:
+- All Scripture is God‑breathed and sufficient for equipping believers (2 Timothy 3:16–17)
+- Test every teaching like the Bereans—receive eagerly, examine daily (Acts 17:11)
+- Aim for obedience over information—be doers, not hearers only (James 1:22; Romans 12:2)
+- Read the whole of the Bible to understand parts of the Bible
+- Practice translation humility—compare trustworthy translations; when possible, consult original‑language tools and wise elders
 
 Baptism through both water and fire is essential for spiritual rebirth and identification with Christ's death and resurrection. Holy Communion is Christ's direct command—eating His flesh and drinking His blood gives eternal life and creates abiding union with Him. Demons will do anything to prevent these because they know how powerful this unity with Christ is.
 

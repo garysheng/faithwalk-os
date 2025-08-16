@@ -30,7 +30,7 @@ Evil rarely asks for your soul upfront. It asks for your silence, your compromis
 
 Matthew 6:24 reveals the core issue: "No one can serve two masters." You cannot worship money while wanting TMH's favor. You cannot serve TMH while optimizing for worldly approval. These competing loyalties create internal contradiction that destroys spiritual clarity and practical effectiveness.
 
-There are two ways to make a living: the atheistic way of toil and strain, or the godly way of faith and flow. TMH provides what you need for your calling if you follow His will, though this doesn't guarantee wealth for everyone. He knows when you're ready to be a divine wealth steward.
+There are two ways to make a living: the atheistic way of toil and strain, or the Kingdom way of faith and flow. TMH provides what you need for your calling if you follow His will, though this doesn't guarantee financial wealth for everyone. *[See: Eat From the Tree of Life, Not Knowledge](principles/eat-from-the-tree-of-life-not-knowledge.md)* for a practical framework on moving from self-reliance to Spirit-led trust. He knows when you're ready to be a divine wealth steward.
 
 ## Divine Communication and Miracles
 

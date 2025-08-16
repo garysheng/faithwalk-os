@@ -8,7 +8,7 @@ Faith Walk OS is a systematic documentation of my (Gary Sheng's) personal worldv
 
 ## Why Document Your Christian Worldview?
 
-It's so easy in this world to fall into a life of sin. There are so many bullet trains to hell, so many worldly ways to slide into sin. The more intentional you are about your Christian worldview and your walk, the less easy it is for you to design your life in a way that leads more consistently to righteousness.
+It's so easy in this world to fall into a life of sin. There are so many bullet trains to hell, so many worldly ways to slide into sin. The more intentional you are about your Christian worldview and your walk, the easier it is for you to design your life in a way that leads more consistently to righteousness.
 
 Most Christians drift spiritually because they've never forced themselves to crystallize their theology, their approach to discernment, their framework for making decisions. Without intentional documentation and accountability, we lose clarity about what we actually believe and how to live it out.
 

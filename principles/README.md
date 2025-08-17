@@ -8,13 +8,14 @@ These documents capture my practical frameworks for walking the narrow path. Eac
 - Apply the Recognition and Practice questions at the end of each file
 
 ## Suggested Starting Path
-1. [Eat From the Tree of Life, Not Knowledge](eat-from-the-tree-of-life-not-knowledge.md)
-2. [Sever Your Ties With Modern Culture](sever-your-ties-with-modern-culture.md)
-3. [Recognize and Resist Sinfrastructure](recognize-and-resist-sinfrastructure.md)
-4. [Listen to Heavenly Music](listen-to-heavenly-music.md)
-5. [Reserve the Pedestal for God](reserve-the-pedestal-for-god.md)
-6. [Study Wise Spiritual Elders](study-wise-spiritual-elders.md)
-7. [Appreciate Each Denomination’s Gifts](appreciate-each-denominations-gifts.md)
+1. [Don’t Be A Churchian](dont-be-a-churchian.md)
+2. [Eat From the Tree of Life, Not Knowledge](eat-from-the-tree-of-life-not-knowledge.md)
+3. [Sever Your Ties With Modern Culture](sever-your-ties-with-modern-culture.md)
+4. [Recognize and Resist Sinfrastructure](recognize-and-resist-sinfrastructure.md)
+5. [Listen to Heavenly Music](listen-to-heavenly-music.md)
+6. [Reserve the Pedestal for God](reserve-the-pedestal-for-god.md)
+7. [Study Wise Spiritual Elders](study-wise-spiritual-elders.md)
+8. [Appreciate Each Denomination’s Gifts](appreciate-each-denominations-gifts.md)
 
 ## Contributing / Forking
 - One principle per file; use kebab-case filenames

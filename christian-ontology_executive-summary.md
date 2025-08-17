@@ -16,7 +16,7 @@ Salvation comes by grace (TMH loving you), through faith (you loving TMH back), 
 
 Yeshua is both savior and Lord—He died for our sins, rose from the dead, and provides the only path to salvation. He currently intercedes for believers and will return as judge and king. The greatest commandments are loving God completely and loving your neighbor as yourself.
 
-Most people who call themselves Christians but don't live like they fear TMH are lukewarm Christians. Don't model yourself after them. Also, many "Christians" are actually agents of Satan operating within churches and positions of power.
+Most people who call themselves Christians but don't live like they fear TMH are lukewarm Christians or what I call 'Churchians'. Don't model yourself after them. Also, many "Christian" leaders are actually agents of Satan operating within church networks and seats of power. *[See: Don’t Be A Churchian](principles/dont-be-a-churchian.md).* 
 
 ## Spiritual Warfare Is Real
 

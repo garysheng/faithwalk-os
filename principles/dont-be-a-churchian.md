@@ -52,6 +52,8 @@ The goal isn't better church attendance—it's theosis. Becoming like Christ in 
 
 This requires constant questioning: What's getting in the way of actually following Christ's way? What traditions have we inherited that hinder rather than help transformation? What would it look like to live an embodied version of Christianity in this technological age?
 
+For me, this nascent theosis journey has required severing ties with sin culture and completely changing my life. I lived most of my life as an atheist, including years focused on humanitarian impact. But atheistic humanism is not the same as dying to self and living for Christ. A life dedicated to Yeshua is categorically different. As a result, I’ve carried along very few friends and lifestyle habits from past versions of my life. It’s been difficult, but necessary. *[See: Sever Your Ties With Modern Culture](sever-your-ties-with-modern-culture.md).* 
+
 ## Reflection and Practice
 
 **Ask yourself as you evaluate your faith:**

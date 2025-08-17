@@ -2,7 +2,7 @@
 
 Faith Walk OS is a systematic documentation of my (Gary Sheng's) personal worldview and framework for following Christ. The idea is that my complete approach to faith and walking the narrow path should be legible, critiquable, and forkable.
 
-**[📖 Read the Executive Summary](christian-ontology_executive-summary.md)** - A comprehensive overview of my Christian worldview and spiritual framework
+**[📖 Read the Executive Summary](christian-ontology_executive-summary.md)** - Overview of my Christian ontology: foundations, spiritual warfare, biblical principles, and practical frameworks
 
 **[🔧 Browse Principles](principles/)** - Detailed frameworks and practical applications for living out the faith
 

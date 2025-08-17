@@ -1,4 +1,4 @@
-# A Brief Overview of Gary's Christian Ontology
+# Gary's Christian Ontology: A Brief Overview
 
 ### *The Most High God created everything and operates reality through spiritual laws that produce practical outcomes, before and after death, when followed faithfully.*
 

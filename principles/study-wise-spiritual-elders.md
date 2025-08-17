@@ -22,6 +22,8 @@ Here are a few examples of wise elders that have shaped me:
 
 - C.S. Lewis remains a gold standard for clear, compelling Christian thought that crosses denominational lines. His vision of moral realism and transformed desire still cuts through modern confusion.
 
+- Frank Viola. His Christ-centered ecclesiology and writing on organic church life challenged my assumptions about institutionalism and helped me prioritize Christ’s headship over brand and structure.
+
 - Dr. Michael Cocchini—his journey across religions and rigorous biblical reasoning are refreshing.
 
 - My friend Peter Han—his Tree of Life vs. Tree of Knowledge teaching reshaped how I trust God with money and work.

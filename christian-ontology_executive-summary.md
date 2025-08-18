@@ -77,6 +77,8 @@ Regular fellowship with believers is essential for spiritual growth, accountabil
 
 Living authentically for Christ often brings suffering and persecution, even from family and friends. This is normal and expected—Christ promised we would face tribulation in this world.
 
+When choosing what causes to advance with your God-given talents, beware of movements that mix truth with deception and compete with Christ for your loyalty. *[See: Don’t Advance Anti-Christian Causes](principles/dont-advance-anti-christian-causes.md).* 
+
 ## Total Commitment
 
 You cannot be half a living monument to TMH. Your entire existence should honor Him—every decision, relationship, and use of time and energy. This creates challenges because drastically different worldviews mean drastically different approaches to every major decision.

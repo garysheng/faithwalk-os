@@ -20,7 +20,7 @@ Most people who call themselves Christians but don't live like they fear TMH are
 
 ## Spiritual Warfare Is Real
 
-Satan is a fallen angel commanding evil spirits to corrupt people into sin. He operates everywhere—churches, homes, high offices—as the "god" of this world. We're living through spiritual warfare, but most don't recognize it because Satan's strategy is subtle: making people spiritually depressed, spiritually fat, and spiritually unemployed while convincing them it's personal failure.
+Satan is a fallen angel commanding evil spirits to corrupt people into sin. He operates everywhere—churches, homes, high offices—as the "god" of this world. We're living through spiritual warfare, but most don't recognize it because Satan's strategy is subtle: making people spiritually depressed and confused while convincing them it's personal failure.
 
 The enemy operates through "sinfrastructure"—systems designed to make sin feel natural and righteousness feel heroic. Social media fragments worldviews. Dating apps commodify relationships. Impact organizations divert energy from God's calling into impotent secular metrics. *[See detailed analysis: Recognize and Resist Sinfrastructure](principles/recognize-and-resist-sinfrastructure.md)*
 

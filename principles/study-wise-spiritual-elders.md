@@ -26,7 +26,9 @@ Here are a few examples of wise elders that have shaped me:
 
 - Frank Viola. His Christ-centered ecclesiology and writing on organic church life challenged my assumptions about institutionalism and helped me prioritize Christ’s headship over brand and structure.
 
-- Dr. Michael Cocchini—his journey across religions and rigorous biblical reasoning are refreshing.
+- Dr. Michael Cocchini—his journey across religions and rigorous biblical reasoning are refreshing. From exploring multiple faiths to deep dives in Scripture, he offers clear apologetics that cut through modern confusion. His practical wisdom on discernment, spiritual warfare, and living counter-culturally has helped me navigate faith in a skeptical world.
+
+- John Piper. His book "Don't Waste Your Life" inspires radical devotion to Christ over worldly pursuits. He offers wise views on AI—don't put it on a pedestal, but use it as a tool under God's sovereignty. Piper's teaching on Christian hedonism ("God is most glorified in us when we are most satisfied in Him") reframes joy as central to faith. His writings on God's sovereignty in suffering and passion for global missions have strengthened my resolve to live purposefully for eternity.
 
 - My friend Peter Han—his Tree of Life vs. Tree of Knowledge teaching reshaped how I trust God with money and work.
 

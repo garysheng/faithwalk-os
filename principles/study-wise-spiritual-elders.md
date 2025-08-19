@@ -18,9 +18,11 @@ When you find elders who resonate, go deep. Study how they think, who they study
 
 Here are a few examples of wise elders that have shaped me:
 
-- Francis Schaeffer. His worldview critique lands even harder today and has strengthened my critique of secular humanism—whether "conscious capitalism," socialism, or communism—false gospels that borrow Christian morality while rejecting Christ.
+- Francis Schaeffer. I love the many docuseries he has created. His worldview critique lands even harder today and has strengthened my critique of secular humanism—whether "conscious capitalism," socialism, or communism—false gospels that borrow Christian morality while rejecting Christ.
 
 - C.S. Lewis remains a gold standard for clear, compelling Christian thought that crosses denominational lines. His vision of moral realism and transformed desire still cuts through modern confusion.
+
+- G.K. Chesterton. His apologetics and social critique show why Christianity dignifies the common person and makes democracy workable—by humbling rulers before God and restraining idolatry of power and wealth. He celebrates Christ‑likeness, challenges tyrants, and offers incisive critiques of alternative religions (including why Buddhism is not Christianity despite surface parallels).
 
 - Frank Viola. His Christ-centered ecclesiology and writing on organic church life challenged my assumptions about institutionalism and helped me prioritize Christ’s headship over brand and structure.
 

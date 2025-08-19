@@ -65,6 +65,8 @@ Technology should serve humans who serve TMH, not replace or compete with divine
 
 Christians should use technology but not idolize it. Use it as tools to advance Christian callings. The utility of building Christian towns is creating strongholds for raising good Christian kids, businesses, and schools.
 
+My deep sense-making and hunt for truth about what matters most for Christians to work on has led me to believe that one of the most critical issues we face is the formation crisis in how we raise children and prepare them to be lights unto the world. *[See: The Formation Crisis](perspectives/the-formation-crisis.md) for a comprehensive analysis of why raising godly children has become nearly impossible and what to do about it.*
+
 ## Practical Spiritual Laws
 
 Your calling isn't self-directed purpose or "making your own meaning"—it's serving how TMH wants you to serve, revealed through prayer, scripture, and godly counsel. TMH will test your faith through seasons of long suffering, which is normal and part of His divine plan for refinement.
@@ -96,3 +98,7 @@ The victory is already assured through Christ. We simply follow instructions: be
 Reality operates on spiritual laws. Learn them. Follow them. Build with them. Everything else is fumbling in the dark.
 
 *"Seek first the kingdom of God and his righteousness, and all these things will be added to you." — Matthew 6:33*
+
+---
+
+Connect with me on X: [@garysheng](https://x.com/garysheng)

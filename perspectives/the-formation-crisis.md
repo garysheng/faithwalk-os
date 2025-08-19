@@ -16,13 +16,15 @@ Ultimately, our children will either rebuild civilization on Godly foundations o
 
 ## **The Central Question: How Do We Stop Failing Our Children?**
 
-"The fear of the LORD is the beginning of knowledge; fools despise wisdom and instruction." This ancient truth reveals why our education system produces confused, mentally ill children who waste their talents on meaningless pursuits.
+> "The fear of the LORD is the beginning of knowledge; fools despise wisdom and instruction." (Proverbs 1:7)
+
+This ancient truth reveals why our education system produces confused, mentally ill children who waste their talents on meaningless pursuits.
 
 We face a formation crisis disguised as an education problem.
 
 Ask any Christian parent:
 
-"Do you want to see your children burn with love for Christ, possess deep self-awareness, understand their place in the world, and channel their gifts into vocations that honor God while contributing meaningfully to society?"
+> "Do you want to see your children burn with love for Christ, possess deep self-awareness, understand their place in the world, and channel their gifts into vocations that honor God while contributing meaningfully to society?"
 
 Almost none would say no. Because it's a worthy goal to form children in this way. But it won't happen if we as Christians don't radically rethink how we think about education and how to develop our kids.
 

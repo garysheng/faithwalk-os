@@ -75,7 +75,7 @@ When you're in TMH's flow, progress feels effortless. When everything feels stre
 
 Regular fellowship with believers is essential for spiritual growth, accountability, and mutual encouragement. Don't forsake gathering together. Most of us are called to marry true believing Christians and raise good Christian kids.
 
-We're called to share the gospel and make disciples of all nations through verbal witness and living as examples of Christ's love. *[See: Bring In The Harvest](bring-in-the-harvest.md) for practical ways to join God's mission.*
+We're called to share the gospel and make disciples of all nations through verbal witness and living as examples of Christ's love. *[See: Bring In The Harvest](principles/bring-in-the-harvest.md) for practical ways to join God's mission.*
 
 Living authentically for Christ often brings suffering and persecution, even from family and friends. This is normal and expected—Christ promised we would face tribulation in this world.
 

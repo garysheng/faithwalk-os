@@ -36,7 +36,7 @@ There are two ways to make a living: the atheistic way of toil and strain, or th
 
 ## Divine Communication and Miracles
 
-The Holy Spirit provides daily guidance through prayer, scripture, and circumstances. Prayer is continuous communication throughout the day, not just formal moments. When your spirit is clean—free from sin, ego, and worldly attachments—spiritual discernment becomes automatic.
+The Holy Spirit provides daily guidance through prayer, scripture, and circumstances. Prayer is continuous communication throughout the day, not just formal moments. When your spirit is clean—free from sin, ego, and worldly attachments—spiritual discernment becomes automatic. Build this intimacy by making God your closest friend. *[See: Make God Your Best Friend](principles/make-god-your-best-friend.md).*
 
 Music carries spiritual frequency that affects your connection to God. Your heart receives whatever frequency you feed it—dark music programs dark thoughts, while Christ-centered music strengthens your faith and advances your ministry. Choose sounds that align your heart with Heaven's frequency. *[See: Listen to Heavenly Music](principles/listen-to-heavenly-music.md)*
 
@@ -73,7 +73,9 @@ When you're in TMH's flow, progress feels effortless. When everything feels stre
 
 ## Christian Community and Mission
 
-Regular fellowship with believers is essential for spiritual growth, accountability, and mutual encouragement. Don't forsake gathering together. Most of us are called to marry true believing Christians and raise good Christian kids. We're called to share the gospel and make disciples of all nations through verbal witness and living as examples of Christ's love.
+Regular fellowship with believers is essential for spiritual growth, accountability, and mutual encouragement. Don't forsake gathering together. Most of us are called to marry true believing Christians and raise good Christian kids.
+
+We're called to share the gospel and make disciples of all nations through verbal witness and living as examples of Christ's love. *[See: Bring In The Harvest](bring-in-the-harvest.md) for practical ways to join God's mission.*
 
 Living authentically for Christ often brings suffering and persecution, even from family and friends. This is normal and expected—Christ promised we would face tribulation in this world.
 

@@ -6,6 +6,8 @@ Faith Walk OS is a systematic documentation of my (Gary Sheng's) personal worldv
 
 **[🔧 Browse Principles](principles/)** - Detailed frameworks and practical applications for living out the faith
 
+**[🔧 Browse Perspectives](perspectives/)** - Long-form assessments of major systems that believers are called to change
+
 ## Why Document Your Christian Worldview?
 
 It's so easy in this world to fall into a life of sin. There are so many bullet trains to hell, so many worldly ways to slide into sin. The more intentional you are about your Christian worldview and your walk, the easier it is for you to design your life in a way that leads more consistently to righteousness.

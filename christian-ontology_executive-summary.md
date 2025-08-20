@@ -67,11 +67,13 @@ Christians should use technology but not idolize it. Use it as tools to advance 
 
 My deep sense-making and hunt for truth about what matters most for Christians to work on has led me to believe that one of the most critical issues we face is the formation crisis in how we raise children and prepare them to be lights unto the world. *[See: The Formation Crisis](perspectives/the-formation-crisis.md) for a comprehensive analysis of why raising godly children has become nearly impossible and what to do about it.*
 
-## Practical Spiritual Laws
+## Practical Spiritual Laws to Follow
 
 Your calling isn't self-directed purpose or "making your own meaning"—it's serving how TMH wants you to serve, revealed through prayer, scripture, and godly counsel. TMH will test your faith through seasons of long suffering, which is normal and part of His divine plan for refinement.
 
 When you're in TMH's flow, progress feels effortless. When everything feels stressful, you've misunderstood reality's nature and must reassess and submit to what TMH wants. Repentance means being bluntly honest about sin—admit faults to friends for healing and spiritual integrity.
+
+Unlocking God's kingdom requires working with people who share your commitment to righteousness rather than those who serve themselves. You cannot serve multiple masters or build something pure with corrupt partners. *[See: Work With Righteous People](principles/work-with-righteous-people.md) for wisdom on building your own platform of independence so you never have to choose between principles and paycheck.*
 
 ## Christian Community and Mission
 

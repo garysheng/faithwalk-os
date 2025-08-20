@@ -1,4 +1,4 @@
-# **Why America Feels Like Hell**
+# Why America Feels Like Hell
 
 ### ***When you wake up as an awakened follower of Christ, and you start to love what Christ loves, and hate what Christ hates, you realize that the United States has become the 'world' incarnate—a living monument to disobedience of God***
 

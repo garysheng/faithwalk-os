@@ -87,7 +87,7 @@ When choosing what causes to advance with your God-given talents, beware of move
 
 You cannot be half a living monument to TMH. Your entire existence should honor Him—every decision, relationship, and use of time and energy. This creates challenges because drastically different worldviews mean drastically different approaches to every major decision.
 
-The pool of fully committed people is tiny, but you only need to find the right ones. Quality over quantity in friendships and marriage. TMH will provide aligned relationships when you refuse to compromise standards.
+The pool of fully committed people is tiny, but you only need to find the right ones. Quality over quantity in friendships and marriage. TMH will provide aligned relationships when you refuse to compromise standards. *[See: Keep Your Crew Tight and Holy](principles/keep-your-crew-tight-and-holy.md) for building deep relationships with those earnestly walking the narrow path.*
 
 ## The Victory
 

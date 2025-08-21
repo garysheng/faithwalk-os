@@ -24,11 +24,7 @@ I am astonished how upside down this country has become. As Paul warned: "They e
 
 When you embrace what Christ actually wants—turning away from the world—you see America clearly. We are not in God's favor. We're a country where billions of Bibles have been printed throughout our history, yet we've chosen systematic disobedience anyway.
 
-## **The Syndicate of Satan Controls America**
-
-Satan must be proud of his successful military coup of America. The devil has his grips in America precisely because Americans have so much potential to be saved and help save others—Satan always attacks what threatens him most.
-
-What does it look like to live in a nation captured by Satan?
+## **What It's Like to Live in a Country Controlled by Satan**
 
 It's almost impossible to live and participate in American society without constantly sinning, or constantly suffering. The infrastructure of American life is designed to make you fall, or barely survive. *[See: Recognize and Resist Sinfrastructure](../principles/recognize-and-resist-sinfrastructure.md) for understanding how these systems are engineered to promote sin.*
 
@@ -38,9 +34,9 @@ This isn't accidental.
 
 Satan and his minions have designed systems that profit from human weakness while ordinary Americans struggle to survive—much less live virtuously—within infrastructure engineered for their moral failure.
 
-They have made virtue requires superhuman effort while vice flows downhill: Following Christ means swimming against every current of normal life; and speaking truth costs you access, income, and relationships.
+They have made virtue require superhuman effort while vice flows downhill: Following Christ means swimming against every current of normal life; and speaking truth costs you access, income, and relationships.
 
-## **The Presidents Tell the Story**
+## **Our Presidents Expose Our Satanic State Of Affairs**
 
 Look at our presidents. They represent what we actually value, not what we claim to value.
 

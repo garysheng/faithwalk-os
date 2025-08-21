@@ -2,6 +2,8 @@
 
 *How did God design the universe? What is God's will for us? How should we live in light of eternal truth? These are not obvious questions with simple answers.*
 
+![Elder](../artworks/elder.png)
+
 You have the privilege of building your Christian foundation on elders who spent years if not decades wrestling with these mysteries. They studied Scripture deeply, endured trials that tested their faith, and emerged with tested wisdom about God's creation and His heart for humanity.
 
 Stand on their shoulders. Let their hard-won insights become stepping stones for your journey. Why start from scratch?

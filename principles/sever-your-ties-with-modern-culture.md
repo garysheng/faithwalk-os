@@ -2,6 +2,8 @@
 
 *There's a difference between knowing the truth and living it. Between acknowledging Christ and actually following Him on the narrow path.*
 
+![Leave](../artworks/leave.png)
+
 I've spent enough time in fellowship with people seeking truth to see this disconnect clearly. You can't simultaneously pursue God wholeheartedly while remaining entangled in a culture that has severed its ties from godliness. The culture and infrastructure of modern life—the city-layouts, apps, habits, relationships, and rhythms—actively works against spiritual formation.
 
 It's time to make a choice. You cannot serve both God and the patterns of a fallen world.

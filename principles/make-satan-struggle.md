@@ -2,6 +2,8 @@
 
 *You as a Christian are not called to be passive in the face of evil—you're called to make Satan's work as difficult as possible.*
 
+![Fight Satan](../artworks/fightsatan.png)
+
 We live in an upside-down world where evil has made itself comfortable, where corruption flows freely through institutions, and where speaking truth comes at tremendous personal cost. *[See: Why America Feels Like Hell](../perspectives/why-america-feels-like-hell.md) for understanding how systemic this corruption has become.*
 
 But that's precisely when followers of Christ are called to stand up and make the enemy struggle for every inch of ground.

@@ -1,6 +1,8 @@
 # The Formation Crisis
 
-### ***Why raising a child to faithfully serve God’s calling can feel impossible today—and what we can do in our lifetimes to flip the odds.***
+### ***Why raising a child to faithfully serve God's calling can feel impossible today—and what we can do in our lifetimes to flip the odds.***
+
+![School](../artworks/school.png)
 
 ## **Executive Summary**
 

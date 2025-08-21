@@ -2,6 +2,8 @@
 
 ### ***When you wake up as an awakened follower of Christ, and you start to love what Christ loves, and hate what Christ hates, you realize that the United States has become the 'world' incarnate—a living monument of rebellion against God***
 
+![Hell](../artworks/hell.png)
+
 I used to think America was basically good. Flawed but redeemable. A Christian nation that had lost its way but could find it again with the right leaders and policies.
 
 I was wrong.

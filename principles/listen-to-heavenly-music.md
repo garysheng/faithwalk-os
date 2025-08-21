@@ -2,6 +2,8 @@
 
 *Gospel, Baptist hymns, Christian rock, praise music, worship songs, Christian-inspired ambient.*
 
+![Music](../artworks/music.png)
+
 What happens when you consistently fill your mind with music that points toward God versus away from Him?
 
 Your spiritual frequency changes. Music affects your heart, and your heart is your greatest spiritual instrument. Listening to dark, demonic frequencies severs connection with God while Christian music strengthens your faith and advances your ministry.

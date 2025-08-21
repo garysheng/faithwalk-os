@@ -17,7 +17,7 @@ It's so easy in this world to fall into a life of sin. There are so many bullet 
 Most Christians drift spiritually because they've never forced themselves to crystallize their theology, their approach to discernment, their framework for making decisions. Without intentional documentation and accountability, we lose clarity about what we actually believe and how to live it out.
 
 **Version controlling your walk with Christ makes sense!** GitHub make it easy for that walk to be:
-- Queryable by AI
+- Queryable by AI ([example query from 2025-08-21](https://www.perplexity.ai/search/solely-given-this-https-github-do4pkDULQXqv6jpHT.wXvQ))
 - Updatable as you grow  
 - Transparent to others who want to quickly assess their spiritual alignment with you
 

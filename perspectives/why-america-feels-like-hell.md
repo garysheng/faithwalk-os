@@ -6,39 +6,39 @@ I used to think America was basically good. Flawed but redeemable. A Christian n
 
 I was wrong.
 
-**America does not serve God. America serves Mammon.**
+**America does not serve God. America serves mammon.**
 
-We've built a civilization that worships money, power, and what we call "freedom"—which has become the freedom to be degenerate, to cause societal decay, to destroy the sources of truth and life.
+*"No man can serve two masters; for either he will hate the one and love the other, or else he will hold to the one and despise the other. Ye cannot serve God and mammon." — Matthew 6:24*
 
-The more freedom we get, the more we destroy Christ. That's why our birthrate is catastrophic. That's why our most famous people are liars and charlatans. That's why you can barely name five real saints on one hand unless you go out of your way to find them.
+(In the Bible, mammon is often used to represent material wealth, riches, or possessions, and sometimes even the worldly values associated with them.)
 
-Notice: no one asks for more rights to be constrained. No one asks for more freedom to walk the narrow path. Our worship of money and freedom has brought us straight to hell.
+We've built a civilization that worships money.
 
-What we should worship is Christ—not freedom, not equality, not love as abstract concepts. When you worship equality, you get communism. When you worship love, you get the LGBT movement. All these words get twisted by the enemy. There's only one narrow path: Christ, who is the way, the truth, and the life. Understanding what that means takes a lifetime, and I'm still grappling with even a fraction of it.
+One that also worships earthly power, and what Americans call "freedom"—which really means the freedom to be degenerate, to cause societal decay, to destroy the sources of truth and life.
 
-"My people are destroyed for lack of knowledge." — Hosea 4:6
+The more freedom we Americans get, the more we seem to use that freedom to rebel against Christ.
+
+Notice how no one asks for more rights to be constrained. No one asks for more freedom to walk the narrow path. Our worship of freedom has brought us straight to hell.
 
 I am astonished how upside down this country has become. As Paul warned: "They exchanged the truth about God for a lie, and worshiped and served created things rather than the Creator" (Romans 1:25).
 
 When you embrace what Christ actually wants—turning away from the world—you see America clearly. We are not in God's favor. We're a country where billions of Bibles have been printed throughout our history, yet we've chosen systematic disobedience anyway.
 
-That's the worst kind of rebellion. The people who deserve the lowest realms of hell are those who knew the truth and picked a different route.
-
 ## **The Syndicate of Satan Controls America**
 
 Satan must be proud of his successful military coup of America. The devil has his grips in America precisely because Americans have so much potential to be saved and help save others—Satan always attacks what threatens him most.
 
-What does it look like to live in a captured nation?
+What does it look like to live in a nation captured by Satan?
 
-It's almost impossible to live and participate in American society without constantly sinning. The infrastructure of American life is designed to make you fall. *[See: Recognize and Resist Sinfrastructure](../principles/recognize-and-resist-sinfrastructure.md) for understanding how these systems are engineered to promote sin.*
+It's almost impossible to live and participate in American society without constantly sinning, or constantly suffering. The infrastructure of American life is designed to make you fall, or barely survive. *[See: Recognize and Resist Sinfrastructure](../principles/recognize-and-resist-sinfrastructure.md) for understanding how these systems are engineered to promote sin.*
 
 Our phones activate lust on demand. Our apps turn us into gambling addicts. Our entertainment celebrates what God calls abomination. Our leaders fund wars while trafficking children.
 
-This isn't accidental. This is systematic.
+This isn't accidental.
 
-The wealthy and powerful have designed systems that profit from human weakness while ordinary Americans struggle to survive—much less live virtuously—within infrastructure engineered for their moral failure.
+Satan and his minions have designed systems that profit from human weakness while ordinary Americans struggle to survive—much less live virtuously—within infrastructure engineered for their moral failure.
 
-We've created a system where virtue requires superhuman effort while vice flows downhill. Where following Christ means swimming against every current of normal life. Where speaking truth costs you access, income, and relationships.
+They have made virtue requires superhuman effort while vice flows downhill: Following Christ means swimming against every current of normal life; and speaking truth costs you access, income, and relationships.
 
 ## **The Presidents Tell the Story**
 
@@ -58,21 +58,21 @@ The deeper issue is that we've made idols out of everything except Christ. *[See
 
 ## **American Elites' Lust For Money & Power Is Insatiable**
 
-Americans have an insatiable lust for materialism, status, and power. We measure success by wealth accumulation and social media followers. Even American Christian faith is measured by material wealth—more money equals "God loves me more." We worship celebrities who are spiritually bankrupt. We build entire industries around human trafficking disguised as entertainment.
+American elites have an insatiable lust for materialism, status, and power. They set the standard for what is celebrated in our culture: wealth, influence, and the ability to bend the rules for personal gain. Even within American Christianity, the faith of the powerful is often measured by their material success—more money is seen as a sign of greater blessing. We idolize celebrities and moguls who are spiritually bankrupt, and entire industries profit from exploitation and vice, often hidden behind the veneer of entertainment.
 
-Through revelations about the Epstein network, it's clear that America deems child rape as presidential.
+The Epstein network’s exposure revealed just how deeply depravity is embedded among the highest levels of American power. For the elite, even the most heinous crimes are shielded by money and connections.
 
-In America, you can get away with anything if you have enough money or power—our legal and electoral systems are designed to protect the wealthy while crushing the poor. Justice is for sale to the highest bidder.
+In America, the legal and political systems are engineered to protect the wealthy and powerful, while the poor are left defenseless. Justice is routinely auctioned off to those who can afford it.
 
-And look at our schools—a complete joke that produces graduates who can't think, can't build, and can't discern truth from lies.
+Our schools, under the influence of these same elites, have become factories for producing compliant workers rather than thinkers or builders. Critical thought and discernment are casualties of an education system designed to serve the interests of those at the top.
 
-The biopharma complex is already positioning itself to profit from the mass meaning crisis, offering chemical Band-aids for spiritual emptiness instead of pointing people to Christ.
+The biopharma industry, led by elite investors and executives, is already positioning itself to profit from the spiritual and existential crisis gripping the nation. Instead of addressing the root causes of emptiness, they offer chemical solutions that numb rather than heal.
 
-Private equity firms have turned basic human needs into profit extraction machines, making homeownership impossible for entire generations while degrading the quality of everything they touch. They buy up housing to rent back to families who can no longer afford to buy, monopolize industries to cut costs and create shoddy versions of products that once lasted decades, all while extracting maximum wealth from human necessity.
+Private equity firms—another tool of the elite—have transformed basic human needs into opportunities for relentless profit extraction. Homeownership is out of reach for millions as these firms buy up housing, degrade quality, and rent it back at inflated prices. They monopolize industries, cut corners, and turn once-reliable products into disposable junk, all to maximize returns for a small class of investors.
 
-The cruelty goes beyond financial extraction. I know someone who was hunted down unjustly by a private equity firm and forced by courts through a secret arbitration process to abort her baby as part of the settlement. This is what happens when Mammon has total control—the system literally forces people to destroy life itself to satisfy the financial appetites of the powerful.
+The cruelty of elite power goes beyond economics. I know someone who was targeted by a private equity firm and, through a secretive legal process, was forced to make unimaginable sacrifices—including being compelled to abort her child as part of a settlement. This is the logical endpoint of a system where Mammon reigns: life itself is expendable if it stands in the way of profit.
 
-We worship the wrong people—tech oligarchs and financial elites who've gathered unprecedented power and are building a mass surveillance state unlike anything we've ever seen. Companies like Palantir are constructing the infrastructure for this surveillance and military state, using Silicon Valley and Wall Street capital to create tracking systems that monitor every citizen, all while marketing themselves as defenders of freedom and democracy. Their lust for control is as insatiable as their lust for money and power.
+We have elevated the wrong people—tech oligarchs and financial titans who have amassed unprecedented control and are constructing a surveillance state beyond anything previously imagined. Companies like Palantir, backed by Silicon Valley and Wall Street, are building the digital infrastructure for mass monitoring, all while presenting themselves as champions of freedom and democracy. Their appetite for control is matched only by their hunger for wealth and power.
 
 ## **There Are No Quick Fixes**
 
@@ -114,8 +114,4 @@ I don't know if it is America's destiny to be redeemed. That's a project that wo
 
 Pray for America's leaders and lost souls—God desires all to be saved (1 Timothy 2:1-4).
 
-America has chosen its god—and it's not the God of the Bible.
-
 The good thing is that your job isn't to save America. Your job is to follow Christ and be salt and light (Matthew 5:13-16)—even if, especially if, your country has chosen hell.
-
-*"No one can serve two masters. Either you will hate the one and love the other, or you will be devoted to the one and despise the other. You cannot serve both God and money." — Matthew 6:24*

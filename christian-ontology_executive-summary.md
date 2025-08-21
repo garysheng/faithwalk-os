@@ -26,6 +26,8 @@ The enemy operates through "sinfrastructure"—systems designed to make sin feel
 
 Evil rarely asks for your soul upfront. It asks for your silence, your compromise, your comfort with injustice. Most people drift into complicity rather than choosing it outright.
 
+Christians are not called to be passive in the face of evil—we're called to actively resist and make Satan's work as difficult as possible. *[See: Make Satan Struggle](principles/make-satan-struggle.md) for understanding how to courageously confront corruption rather than accepting comfortable compromise.*
+
 For practical steps to disentangle from cultural systems—and from relationships and rhythms that keep you compromised—*[see: Sever Your Ties With Modern Culture](principles/sever-your-ties-with-modern-culture.md).* 
 
 ## The Two Masters Problem

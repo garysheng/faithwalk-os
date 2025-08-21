@@ -2,6 +2,8 @@
 
 *Dating apps that commodify connection. Social media that monetizes envy, wrath, and pride. Sports betting apps that turn phones into casinos.*
 
+![Sinfrastructure](../artworks/sinfrastructure.png)
+
 What do we call technology and laws that make sin feel natural, accessible, and profitable while making righteousness feel difficult, outdated, and heroic?
 
 "Satanic infrastructure" or "sinfrastructure."

@@ -1,6 +1,8 @@
 # Eat From the Tree of Life, Not Knowledge
 
-I want to share a framework my friend Peter Han taught me: there are only two ways of operating—eating from the Tree of Knowledge of Good and Evil or from the Tree of Life. The first centers on control through effort, optimization, and self-reliance. The second centers on trust in God’s goodness, timing, and provision.
+![Tree](../artworks/tree.png)
+
+I want to share a framework my friend Peter Han taught me: there are only two ways of operating—eating from the Tree of Knowledge of Good and Evil or from the Tree of Life. The first centers on control through effort, optimization, and self-reliance. The second centers on trust in God's goodness, timing, and provision.
 
 One way tends to produce anxiety, competition, and eventual burnout—even when it “works.” The other cultivates peace, generosity, and sustainable fruitfulness. Each day we choose which tree to eat from.
 

@@ -2,6 +2,8 @@
 
 ### *The Most High God created everything and operates reality through spiritual laws that produce practical outcomes, before and after death, when followed faithfully.*
 
+![Ontology](artworks/ontology.png)
+
 ## The Foundation
 
 The Most High God (TMH) exists as Father, Son (Yeshua/Jesus), and Holy Spirit—three persons, one God. He created everything and keeps promises to those who follow Him. The main promise is if you follow His spiritual laws, you will experience a flourishing spirit life before death, and eternal life reunited fully with TMH after death.

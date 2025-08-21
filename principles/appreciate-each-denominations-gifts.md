@@ -2,6 +2,8 @@
 
 *Orthodox traditions, Catholic scholarship, Baptist gospel music, Pentecostal spiritual gifts, Latter-day Saint community building, Lutheran Bible study.*
 
+![Flowers](../artworks/flowers.png)
+
 What should Christians learn from different denominations while avoiding denominational idolatry?
 
 Study their strengths without believing any single denomination has exclusive salvation rights. It is my view that God did not provide one exclusive container for human salvation, and that many denominations offer valuable insights into following Christ.

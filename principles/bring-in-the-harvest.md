@@ -2,6 +2,8 @@
 
 *"The harvest is plentiful, but the laborers are few. Therefore pray earnestly to the Lord of the harvest to send out laborers into his harvest field." — Matthew 9:37-38*
 
+![Preach](../artworks/preach.png)
+
 God isn't waiting on better circumstances, more resources, or perfect timing to return. He's waiting on us to bring in the harvest. The fields are white and ready—souls all around us are hungry for truth, meaning, and authentic relationship with their Creator (John 4:35).
 
 You don't need seminary training, a platform, or special calling to be a laborer in God's harvest. You just need to be who you are in Christ—authentically, consistently, and with genuine love for the people He puts in your path.

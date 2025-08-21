@@ -2,6 +2,8 @@
 
 *What do you call movements that use truth to push false paths, appeal to your compassion, and lead you away from Christ while feeling righteous?*
 
+![Protest](../artworks/protest.png)
+
 False lights. And they're everywhere—from red pill masculinity to climate activism to political ideologies that promise salvation through human systems rather than divine transformation.
 
 The danger isn't that these movements are obviously evil. The danger is that they're reasonable, appealing, and often address real problems. They wouldn't need to be called out as false lights if they didn't feel compelling to people with good hearts.

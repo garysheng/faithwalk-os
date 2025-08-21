@@ -1,6 +1,6 @@
 # Why America Feels Like Hell
 
-### ***When you wake up as an awakened follower of Christ, and you start to love what Christ loves, and hate what Christ hates, you realize that the United States has become the 'world' incarnate—a living monument to disobedience of God***
+### ***When you wake up as an awakened follower of Christ, and you start to love what Christ loves, and hate what Christ hates, you realize that the United States has become the 'world' incarnate—a living monument of rebellion against God***
 
 I used to think America was basically good. Flawed but redeemable. A Christian nation that had lost its way but could find it again with the right leaders and policies.
 
@@ -18,7 +18,7 @@ What we should worship is Christ—not freedom, not equality, not love as abstra
 
 "My people are destroyed for lack of knowledge." — Hosea 4:6
 
-This shows how upside down we've become. As Paul warned: "They exchanged the truth about God for a lie, and worshiped and served created things rather than the Creator" (Romans 1:25).
+I am astonished how upside down this country has become. As Paul warned: "They exchanged the truth about God for a lie, and worshiped and served created things rather than the Creator" (Romans 1:25).
 
 When you embrace what Christ actually wants—turning away from the world—you see America clearly. We are not in God's favor. We're a country where billions of Bibles have been printed throughout our history, yet we've chosen systematic disobedience anyway.
 
@@ -32,9 +32,11 @@ What does it look like to live in a captured nation?
 
 It's almost impossible to live and participate in American society without constantly sinning. The infrastructure of American life is designed to make you fall. *[See: Recognize and Resist Sinfrastructure](../principles/recognize-and-resist-sinfrastructure.md) for understanding how these systems are engineered to promote sin.*
 
-Our phones activate lust on demand. Our apps turn us into gambling addicts. Our entertainment celebrates what God calls abomination. Our leaders fund wars while trafficking children. Our economy profits from human weakness.
+Our phones activate lust on demand. Our apps turn us into gambling addicts. Our entertainment celebrates what God calls abomination. Our leaders fund wars while trafficking children.
 
 This isn't accidental. This is systematic.
+
+The wealthy and powerful have designed systems that profit from human weakness while ordinary Americans struggle to survive—much less live virtuously—within infrastructure engineered for their moral failure.
 
 We've created a system where virtue requires superhuman effort while vice flows downhill. Where following Christ means swimming against every current of normal life. Where speaking truth costs you access, income, and relationships.
 
@@ -54,7 +56,7 @@ These secular ideologies presented as our only options aren't even on the table 
 
 The deeper issue is that we've made idols out of everything except Christ. *[See: Reserve the Pedestal for God](../principles/reserve-the-pedestal-for-god.md) for understanding how modern culture systematically creates false worship.*
 
-## **Our Lust Is Insatiable**
+## **American Elites' Lust For Money & Power Is Insatiable**
 
 Americans have an insatiable lust for materialism, status, and power. We measure success by wealth accumulation and social media followers. Even American Christian faith is measured by material wealth—more money equals "God loves me more." We worship celebrities who are spiritually bankrupt. We build entire industries around human trafficking disguised as entertainment.
 
@@ -64,13 +66,13 @@ In America, you can get away with anything if you have enough money or power—o
 
 And look at our schools—a complete joke that produces graduates who can't think, can't build, and can't discern truth from lies.
 
-Our birthrate is catastrophic with no quick fixes, so techno-utopians like Elon Musk and Peter Thiel propose artificial wombs and AI girlfriends as solutions while constructing a total surveillance state that will enforce total control on all money.
-
 The biopharma complex is already positioning itself to profit from the mass meaning crisis, offering chemical Band-aids for spiritual emptiness instead of pointing people to Christ.
 
-We worship the wrong people—tech oligarchs and financial elites who've gathered unprecedented power and are building a mass surveillance state unlike anything we've ever seen. Their lust for control is as insatiable as their lust for money and power.
+Private equity firms have turned basic human needs into profit extraction machines, making homeownership impossible for entire generations while degrading the quality of everything they touch. They buy up housing to rent back to families who can no longer afford to buy, monopolize industries to cut costs and create shoddy versions of products that once lasted decades, all while extracting maximum wealth from human necessity.
 
-Their appetite for more is never satisfied because they're trying to fill a God-shaped hole with God-rejecting substitutes. The result is a culture of perpetual emptiness that tries to solve its emptiness with more of what caused it.
+The cruelty goes beyond financial extraction. I know someone who was hunted down unjustly by a private equity firm and forced by courts through a secret arbitration process to abort her baby as part of the settlement. This is what happens when Mammon has total control—the system literally forces people to destroy life itself to satisfy the financial appetites of the powerful.
+
+We worship the wrong people—tech oligarchs and financial elites who've gathered unprecedented power and are building a mass surveillance state unlike anything we've ever seen. Companies like Palantir are constructing the infrastructure for this surveillance and military state, using Silicon Valley and Wall Street capital to create tracking systems that monitor every citizen, all while marketing themselves as defenders of freedom and democracy. Their lust for control is as insatiable as their lust for money and power.
 
 ## **There Are No Quick Fixes**
 
@@ -104,7 +106,11 @@ Stop confusing patriotism with Christianity.
 
 (This is advice to myself as much as anyone!)
 
-It may not be America's destiny to be redeemed. That's a project that would require mass repentance. But our God is the God of miracles...
+**Accept the generational reality.** There will be huge swaths of millennials and Gen Z—and probably Gen Alpha as well—who will simply not be able to afford to have a family, to have a single child. There's not much we can do about this immediate reality. We are the living embodiment of facing the consequences of a country that for generations has chosen Mammon over Truth. We are the victims of it.
+
+Despite the harsh reality of our situation, I do believe it matters to still try to plant seeds for future generations, even if we will be old by the time we see the fruits pay off.
+
+I don't know if it is America's destiny to be redeemed. That's a project that would require mass repentance. But our God is the God of miracles...
 
 Pray for America's leaders and lost souls—God desires all to be saved (1 Timothy 2:1-4).
 

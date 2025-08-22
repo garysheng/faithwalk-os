@@ -2,6 +2,8 @@
 
 *When was the last day you spent more time talking with God than scrolling social media?*
 
+![Prayer](artworks/prayer.png)
+
 Most of us treat God like a distant acquaintance we check in with occasionally—Sunday mornings, crisis moments, maybe a quick prayer before meals. But what if we approached Him like our closest friend? Someone we speak and listen to constantly, share everything with, and turn to for guidance on every decision?
 
 The difference between knowing about God and knowing God personally comes down to communion. Constant, ongoing conversation. Prayer that becomes as natural as breathing rather than a religious obligation we check off our list.

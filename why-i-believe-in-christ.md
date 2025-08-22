@@ -146,6 +146,8 @@ But personal transformation wasn't the only experiential evidence I encountered.
 ### Modern Miracles and Healings
 *Why supernatural interventions still occur in the contemporary world.*
 
+![Healing](artworks/healing.png)
+
 Contemporary accounts of [miraculous healings](https://simonguillebaud.com/stunning-modern-day-miracles/) continue to be reported:
 - Medically documented healings with no natural explanation
 - Miraculous rescues and interventions

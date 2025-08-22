@@ -2,6 +2,8 @@
 
 *What do you call someone who wears a cross, attends services, and speaks Christian language—but lives like an atheist when it comes to actual obedience to Christ?*
 
+![Churchian](artworks/churchian.png)
+
 **A Churchian.** Someone who has adopted Christian culture without Christian transformation. Who conforms Christ to their preferred lifestyle rather than conforming their life to Christ's teachings.
 
 The danger isn't that Churchians are intentionally deceptive—most genuinely believe they're following Christ. The danger is that modern church culture has made it possible to look Christian externally while remaining spiritually unchanged internally. We've created systems that reward religious performance over authentic discipleship.

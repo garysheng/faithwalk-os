@@ -2,6 +2,8 @@
 
 *Money, career, romantic partners (even your spouse), gurus, influencers, political leaders, AI, longevity drugs, sports teams, your nation‑state.*
 
+![Eden](artworks/eden.png)
+
 What happens when you worship anything other than the Most High God?
 
 You violate God's commandment against idolatry—putting anything before Him.

@@ -12,5 +12,5 @@ These documents capture my practical frameworks for walking the narrow path. Eac
 - Include: brief thesis, core argument, Scripture anchors, Recognition and Practice
 - Add cross-links to related principles and to the Executive Summary: ../christian-ontology_executive-summary.md
 
-![Dove](artworks/dove.png)
+![Dove](../artworks/dove.png)
 

@@ -2,7 +2,7 @@
 
 *When was the last day you spent more time talking with God than scrolling social media?*
 
-![Prayer](artworks/prayer.png)
+![Prayer](../artworks/prayer.png)
 
 Most of us treat God like a distant acquaintance we check in with occasionally—Sunday mornings, crisis moments, maybe a quick prayer before meals. But what if we approached Him like our closest friend? Someone we speak and listen to constantly, share everything with, and turn to for guidance on every decision?
 

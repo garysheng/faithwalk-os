@@ -4,4 +4,4 @@ Long-form assessments of major systems, institutions, and cultural patterns that
 
 *These documents are living. Update as understanding deepens and conditions change.*
 
-![Dove](artworks/dove.png)
+![Dove](../artworks/dove.png)

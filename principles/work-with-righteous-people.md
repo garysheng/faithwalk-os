@@ -2,7 +2,7 @@
 
 *You can't serve multiple masters—so why do you keep trying to build God's kingdom with people who serve themselves?*
 
-![Virtuous Work](artworks/virtuouswork.png)
+![Virtuous Work](../artworks/virtuouswork.png)
 
 The world doesn't operate on truth; it operates on leverage and power. This brutal reality means that working with unrighteous people will inevitably corrupt your mission, no matter how pure your intentions start out.
 

@@ -5,7 +5,7 @@
 
 ---
 
-## My Testimony: From Atheist to Believer
+## My Testimony: From Atheist to Evangelist
 
 Like the vast majority of people in my generation, I grew up thinking that faith and reason were like oil and water. Attending a math and science academy and living in a non-religious household, I was always the skeptic, especially when it came to God. To me, faith seemed outdated, almost laughable. I carried this skepticism like a badge of honor.
 
@@ -35,6 +35,16 @@ My skepticism around faith began to crumble. I realized that the real risk isn't
 
 Here's the reality: everyone worships something, whether it's themselves, money, or something else. But the only path to peace today is to worship the Most High God, the head of all existence, the divine orchestrator. *[See: Reserve the Pedestal for God](principles/reserve-the-pedestal-for-god.md) for understanding how to avoid modern idolatry.*
 
+This realization launched me into consistent writing about faith and God's infinite relevance for our times. As people make AI their gods and America enters what feels like a tribulation period, we need God more than ever. We're approaching a dark age that will drive millions of souls to Christ.
+
+A coming 'God Wave' will sweep across the world as human systems fail and divine truth becomes undeniable.
+
+I feel called to be a small part of making that happen. From Atheist to Evangelist—this has been my journey.
+
+After all, it's in my blood. At the end of 2024, I discovered that my great-grandfather in China was a pastor during a time when Christianity faced increasing persecution. The same Spirit that sustained him through trials seems to be calling me to bear witness in our own age of spiritual warfare.
+
+What began as musical and intellectual curiosity in 2021 has become a burning conviction: Christ is not just historically true—He is the answer our generation desperately needs.
+
 ---
 
 **Disclaimer:** To whatever extent the following evidence and arguments resonate with you and ring true, I give all glory and credit to God. Any mistakes, improper arguments, or shortcomings in this analysis are entirely my responsibility. I remain open to your feedback and correction, as I am still learning and growing in my faith journey.
@@ -61,6 +71,8 @@ The universe had a beginning—this isn't just biblical teaching, it's confirmed
 This cause must be spaceless, timeless, immaterial, incredibly powerful, and intelligent—characteristics that align perfectly with the God of Christianity. Einstein's general relativity and Hubble's observations support the premise that [the universe had a beginning](https://en.wikipedia.org/wiki/Cosmological_argument).
 
 But the mere existence of the universe wasn't the only thing that caught my attention as an engineer. The intricate precision of how everything works together suggested something even more profound.
+
+![Earth](artworks/earth.png)
 
 ### The Design Argument
 *How the fine-tuning of reality reveals an intelligent architect.*

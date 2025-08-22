@@ -23,6 +23,8 @@ Trust me when I say that I get why we've gotten to this precarious point where r
 
 ### The Turning Point
 
+![Kanye](artworks/kanye.png)
+
 In 2021, something unexpected happened. I found myself listening to Kanye West's album "Jesus is King," two years after it was already released. I don't know why I played it, but that music hit me differently. It was so beautiful that I couldn't help but wonder if it bore the mark of something—or someone—divine. Watching this music performed by Kanye's Sunday Service Choir on YouTube felt like a direct communication with the divine. I couldn't explain it any other way.
 
 Around this time, I also met individuals who truly walked their faith—people I would never consider lukewarm Christians. People like my friend Matthew, who works with the Vatican, and Marcus, another member of Forbes 30 Under 30 who has devoted his life to Christ by becoming an ordained minister. Matthew and Marcus didn't just talk a Christly talk—they lived their faith. They took great steps to eliminate worldly temptation from their lives. They are all in on walking the divine path.

@@ -2,6 +2,8 @@
 
 *You become like the people you spend the most time with—so why not choose those who reflect Christ's light?*
 
+![Friends](../artworks/friends.png)
+
 Most people are shockingly poor at maintaining relationships. They collect contacts like statistics, accumulate followers like achievements, and mistake networking for genuine connection. I know because I used to do exactly this.
 
 The way we approach friendship reveals what we value. If we're collecting people for convenience, status, or entertainment, we're building our lives on shifting sand. But if we're choosing companions based on shared calling, compatible values, and mutual growth toward Christ, we're building something eternal.

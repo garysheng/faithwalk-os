@@ -26,6 +26,12 @@ This forces a brutal choice: take the lucrative job that compromises your values
 
 Social media monetizes envy, lust, and pride—the exact sins that destroy marriages. Dating apps turn relationships into consumer choices. Entertainment glorifies infidelity, rebellion, and immediate gratification over patience, commitment, and sacrifice.
 
+The legal system itself has inverted the importance of sacred vows. As Father Josiah Trenham observes: 
+
+> "I tell people, especially in Southern California, a lot of people have swimming pools. Most of the people who have swimming pools have contracts with a pool cleaner. He comes once a week. He cleans your pool. He puts some chemicals on. You never see him. But if you break your contract with him, he's going to sue you. In California where we did this, we're the ones who created no-fault divorce in 1969... if you break your pool contract, you're going to go to court. But you can break your sacred vows that you made usually in front of a minister of God and a congregation. Nobody watched you sign your contract with your pool cleaner."
+
+This perfectly captures the absurdity: violate a pool maintenance contract and face legal consequences, but violate sacred marriage vows witnessed by hundreds—often affecting children—and society shrugs.
+
 The sinfrastructure is so pervasive that staying spiritually clean requires constant vigilance. How do you protect children from influences that previous generations never had to consider? *[See: Recognize and Resist Sinfrastructure](../principles/recognize-and-resist-sinfrastructure.md) for understanding how these systems are engineered to promote sin.*
 
 **The role models are catastrophic.** Look at who our culture elevates as examples of masculinity:
@@ -50,7 +56,13 @@ Despite all this, men are still called to rise to this challenge. God hasn't low
 
 **This requires becoming someone worthy of that trust.** Not just financially capable, but spiritually mature enough to model character your children will absorb. Disciplined enough to create the calm, stable environment where love can grow. Wise enough to navigate a hostile culture while protecting innocent hearts.
 
-You have to develop the skills to earn enough money to support a family in an economy designed to prevent family formation. You need the spiritual strength to resist cultural pressures that will constantly tempt you toward compromise. *[See: Sever Your Ties With Modern Culture](../principles/sever-your-ties-with-modern-culture.md) for practical steps to disentangle from systems that make sin feel natural and righteousness feel heroic.* You must cultivate the patience and wisdom to guide children through their formation when every external force works against you.
+As Father Josiah Trenham puts it:
+
+> "Marriage and sexuality is such a big deal that if you don't get it right, it will ruin your life. God created marriage in his wisdom to be able to unify a whole bunch of extremely important things together... If you take any one of those things outside of the bonds of marriage, you're going to have trouble."
+
+This is precisely why the preparation for fatherhood is so demanding—because getting marriage wrong doesn't just affect you, it affects generations.
+
+As a future father, you have to develop the skills to earn enough money to support a family in an economy designed to prevent family formation. You need the spiritual strength to resist cultural pressures that will constantly tempt you toward compromise. *[See: Sever Your Ties With Modern Culture](../principles/sever-your-ties-with-modern-culture.md) for practical steps to disentangle from systems that make sin feel natural and righteousness feel heroic.* You must cultivate the patience and wisdom to guide children through their formation when every external force works against you.
 
 It seems that most men have given up on trying. It's hard to blame. Too many have accepted childlessness as inevitable or postponed family formation indefinitely while chasing careers, experiences, or personal fulfillment. The ones who do attempt families often do so without the spiritual preparation the task demands.
 

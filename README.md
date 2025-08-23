@@ -1,6 +1,6 @@
 # Welcome to Gary's 'Faith Walk OS'
 
-Faith Walk OS is a systematic documentation of my (Gary Sheng's) personal worldview and framework for following Christ. The idea is that my complete approach to faith and walking the narrow path should be legible, critiquable, and forkable.
+Faith Walk OS documents my worldview and way of life, as a follower of Christ. The idea is that my complete approach to faith and walking the narrow path should be legible, critiquable, and forkable.
 
 ![Walk](artworks/walk.png)
 

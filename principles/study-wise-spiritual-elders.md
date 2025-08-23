@@ -32,6 +32,8 @@ Here are a few examples of wise elders that have shaped me:
 
 - John Piper. His book "Don't Waste Your Life" inspires radical devotion to Christ over worldly pursuits. He offers wise views on AI—don't put it on a pedestal, but use it as a tool under God's sovereignty. Piper's teaching on Christian hedonism ("God is most glorified in us when we are most satisfied in Him") reframes joy as central to faith. His writings on God's sovereignty in suffering and passion for global missions have strengthened my resolve to live purposefully for eternity.
 
+- Steven Garber. His book "The Fabric of Faithfulness" connected so many dots for me about how it's important to see it as a very difficult and urgent problem of connecting one's Christian faith to lived action, especially in this increasingly fallen world. He reminds me that one of the priorities of education should be to help young people bridge this gap between belief and practice.
+
 - My friend Peter Han—his Tree of Life vs. Tree of Knowledge teaching reshaped how I trust God with money and work.
 
 No single denomination contains all the elders worth learning from. Each has profound wisdom—and serious failings. Don’t let labels limit your learning. Test teaching by Scripture and fruit, not affiliation. When you find elders who resonate, go deep.

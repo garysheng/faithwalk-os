@@ -14,7 +14,7 @@ The bar is so high it feels rigged against us.
 
 **The economics are brutal.** It's barely possible to support yourself as a single man, let alone a non-working wife and multiple children. Housing costs have exploded. Healthcare is bankrupting families. The American dream of one income supporting a thriving household feels like ancient history.
 
-Our parents and grandparents could afford families on single incomes thirty to forty years ago. Today, even dual-income families struggle while childless adults drown in debt.
+Our parents and grandparents could afford families on single incomes 30–40 years ago. Today, even dual-income families struggle while childless adults drown in debt.
 
 **The career trap is especially brutal for those with valuable skills.** As a software engineer, the highest-paying opportunities often require compromising your conscience. High finance has destabilized our society. Consulting demands constant travel that destroys family life. Defense contractors are weapons manufacturers. Surveillance companies build oppression infrastructure.
 
@@ -30,16 +30,18 @@ But this faith-based approach requires spiritual leadership skills that many men
 
 > "A future father must also remind his wife of the Lord. Quiet her heart. Let her know that everything will be available in time. And that his confidence and strength comes from the Lord... My wife asks me: how are you so calm? The Lord baby. The Lord. Why do you think I share with you the stories of how he carried me during my debt, my medical surgeries?"
 
-This captures a crucial dimension often overlooked: **the husband must be spiritually mature enough to lead his wife's heart toward trust in God's provision rather than worldly anxiety.** This requires deep personal faith, proven through previous trials, not just theoretical knowledge.
+This captures a crucial dimension often overlooked: **the husband must be spiritually mature and entrenched in Christ enough to lead his wife's heart toward trust in God's provision rather than worldly anxiety.** This requires deep personal faith, proven through previous trials, not just theoretical knowledge.
+
+![Marriage](../artworks/marriage.png)
 
 This tension between rational financial planning and faith-based trust captures the spiritual dimension of the challenge. The enemy uses economic anxiety as a weapon against family formation—and uses wives' natural maternal protective instincts to amplify that anxiety unless the husband can provide spiritual leadership.
 
-## 'Raise A Child? In This Culture?!'
+## Raise a Child in This Culture?
 **The culture is poison.** We live in a society that celebrates everything that destroys family formation. Hook-up culture has replaced courtship. Divorce is normalized as "finding yourself." Children are treated as nice-to-haves rather than sacred responsibilities.
 
 Social media monetizes envy, lust, and pride—the exact sins that destroy marriages. Dating apps turn relationships into consumer choices. Entertainment glorifies infidelity, rebellion, and immediate gratification over patience, commitment, and sacrifice.
 
-The legal system itself has inverted the importance of sacred vows. As Father Josiah Trenham observes: 
+The legal system itself has inverted the importance of sacred vows. As [Father Josiah Trenham observes](https://www.youtube.com/watch?v=Udo290RgaBY&t=8s&ab_channel=JonathanPageau): 
 
 > "I tell people, especially in Southern California, a lot of people have swimming pools. Most of the people who have swimming pools have contracts with a pool cleaner. He comes once a week. He cleans your pool. He puts some chemicals on. You never see him. But if you break your contract with him, he's going to sue you. In California where we did this, we're the ones who created no-fault divorce in 1969... if you break your pool contract, you're going to go to court. But you can break your sacred vows that you made usually in front of a minister of God and a congregation. Nobody watched you sign your contract with your pool cleaner."
 
@@ -59,7 +61,7 @@ Even supposed Christian leaders fail spectacularly. Carl Lentz's infidelity. Jer
 
 Where are the examples of men who maintain loving marriages through difficulty, raise children who replicate divine patterns, and demonstrate what righteous manhood actually looks like?
 
-## Heroism Is Required To Rise To The Challege
+## Heroism Is Required to Rise to the Challenge
 **The spiritual warfare is real.** Every screen in your house can deliver pornography to your children instantly. Every app is designed to fragment attention and destroy the contemplative life necessary for spiritual growth. Every institution—schools, universities, entertainment—actively undermines the Christian worldview you're trying to instill.
 
 The formation crisis runs so deep that most Christian parents unconsciously outsource their children's spiritual development to systems that oppose everything they claim to believe. *[See: The Formation Crisis](the-formation-crisis.md) for a comprehensive analysis of why raising godly children has become nearly impossible and what to do about it.*
@@ -68,7 +70,7 @@ Despite all this, men are still called to rise to this challenge. God hasn't low
 
 **This requires becoming someone worthy of that trust.** Not just financially capable, but spiritually mature enough to model character your children will absorb. Disciplined enough to create the calm, stable environment where love can grow. Wise enough to navigate a hostile culture while protecting innocent hearts.
 
-As Father Josiah Trenham puts it:
+As [Father Josiah Trenham puts it](https://www.youtube.com/watch?v=Udo290RgaBY&t=8s&ab_channel=JonathanPageau):
 
 > "Marriage and sexuality is such a big deal that if you don't get it right, it will ruin your life. God created marriage in his wisdom to be able to unify a whole bunch of extremely important things together... If you take any one of those things outside of the bonds of marriage, you're going to have trouble."
 
@@ -79,7 +81,7 @@ As a future father, you have to develop the skills to earn enough money to suppo
 It seems that most men have given up on trying. It's hard to blame. Too many have accepted childlessness as inevitable or postponed family formation indefinitely while chasing careers, experiences, or personal fulfillment. The ones who do attempt families often do so without the spiritual preparation the task demands.
 
 
-## Rebuild Yourself According To Divine Patterns Today
+## Rebuild Yourself According to Divine Patterns Today
 
 The path forward isn't obvious, but it starts with an honest assessment: **Am I becoming someone worthy of the trust and followership of an equally yoked wife? Am I developing the character, competence, and spiritual depth that family leadership requires?**
 

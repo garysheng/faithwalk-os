@@ -26,7 +26,13 @@ All this said, my friend Mayssam, now expecting his first child, offers a differ
 
 > "If I would break down my cost of insurance, my cost of raising the child, preparing for him, the school, my rent and all this, I would obviously be overwhelmed, I would break down. In fact, it would stop me from getting married... There is a very strong level of surrender and trust that I should embody. I should take things step by step... When the time comes, I know he will provide the money. I cannot think about this now, I will not think about this now... There is a level of surrender, of anticipating the present, and most importantly, trusting him, trusting him, that he will provide it. If we don't do this, everything you wrote can overwhelm us, and it is overwhelming. We can drown in all this and say fuck marriage, and this is what they want to do. They want to show us that economically it doesn't make sense, so that we get overwhelmed with fear and the numbers and move away."
 
-This tension between rational financial planning and faith-based trust captures the spiritual dimension of the challenge. The enemy uses economic anxiety as a weapon against family formation.
+But this faith-based approach requires spiritual leadership skills that many men lack. Mayssam continues:
+
+> "A future father must also remind his wife of the Lord. Quiet her heart. Let her know that everything will be available in time. And that his confidence and strength comes from the Lord... My wife asks me: how are you so calm? The Lord baby. The Lord. Why do you think I share with you the stories of how he carried me during my debt, my medical surgeries?"
+
+This captures a crucial dimension often overlooked: **the husband must be spiritually mature enough to lead his wife's heart toward trust in God's provision rather than worldly anxiety.** This requires deep personal faith, proven through previous trials, not just theoretical knowledge.
+
+This tension between rational financial planning and faith-based trust captures the spiritual dimension of the challenge. The enemy uses economic anxiety as a weapon against family formation—and uses wives' natural maternal protective instincts to amplify that anxiety unless the husband can provide spiritual leadership.
 
 ## 'Raise A Child? In This Culture?!'
 **The culture is poison.** We live in a society that celebrates everything that destroys family formation. Hook-up culture has replaced courtship. Divorce is normalized as "finding yourself." Children are treated as nice-to-haves rather than sacred responsibilities.

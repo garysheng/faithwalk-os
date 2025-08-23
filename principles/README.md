@@ -2,8 +2,8 @@
 
 These documents capture my practical frameworks for walking the narrow path. Each principle is designed to be legible, critiquable, and forkable.
 
-## How to Use
-- Start with identity and posture, then move to environment and practice
+## How to Benefit From These Principle Articles
+- Start on any principle
 - Follow cross-links; many principles reinforce each other
 - Apply the Recognition and Practice questions at the end of each file
 

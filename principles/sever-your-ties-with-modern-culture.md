@@ -52,7 +52,7 @@ Breaking free from this cult means:
 
 As Solzhenitsyn warned, if we submit to this downward slide and abandon "the great cultural tradition of the foregoing centuries together with the spiritual foundations from which it grew," we contribute to "a highly dangerous fall of the human spirit on earth."
 
-## Building New Foundations
+## Building Holier Foundations In Your Life
 
 Separation isn't comfortable—you'll feel lonely, misunderstood, and face pressure to "lighten up." But as you sever ties with sin-celebrating culture, actively build connections to righteousness:
 

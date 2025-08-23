@@ -63,13 +63,15 @@ Biblical reading principles I follow:
 
 Baptism through both water and fire is essential for spiritual rebirth and identification with Christ's death and resurrection. Holy Communion is Christ's direct command—eating His flesh and drinking His blood gives eternal life and creates abiding union with Him. Demons will do anything to prevent these because they know how powerful this unity with Christ is.
 
-## The Christofuturist Vision
+## This Moment Calls for Christofuturists To Help Lead The Way
 
 Technology should serve humans who serve TMH, not replace or compete with divine authority. The proper hierarchy is: TMH reigns supreme, humans serve TMH, AI serves humans. When we reverse this order—making AI our god or using technology to avoid spiritual development—we build modern towers of Babel.
 
 Christians should use technology but not idolize it. Use it as tools to advance Christian callings. The utility of building Christian towns is creating strongholds for raising good Christian kids, businesses, and schools.
 
-My deep sense-making and hunt for truth about what matters most for Christians to work on has led me to believe that one of the most critical issues we face is the formation crisis in how we raise children and prepare them to be lights unto the world. *[See: The Formation Crisis](perspectives/the-formation-crisis.md) for a comprehensive analysis of why raising godly children has become nearly impossible and what to do about it.*
+My deep sense-making and hunt for truth about what matters most for Christians to work on has led me to believe that one of the most critical issues we face is the formation crisis in how we raise children and prepare them to be lights unto the world. *[See: The Formation Crisis](perspectives/the-formation-crisis.md) for a comprehensive analysis of why raising godly children has become nearly impossible and what to do about it.* 
+
+For men specifically, the challenge of becoming worthy fathers in this hostile environment requires heroic transformation. *[See: The Heroism Required for Modern Fatherhood](perspectives/the-heroism-required-for-fatherhood.md) for an honest assessment of the economic, cultural, and spiritual obstacles facing aspiring fathers—and why the formation required is so demanding.*
 
 ## Practical Spiritual Laws to Follow
 
@@ -95,7 +97,7 @@ You cannot be half a living monument to TMH. Your entire existence should honor 
 
 The pool of fully committed people is tiny, but you only need to find the right ones. Quality over quantity in friendships and marriage. TMH will provide aligned relationships when you refuse to compromise standards. *[See: Keep Your Crew Tight and Holy](principles/keep-your-crew-tight-and-holy.md) for building deep relationships with those earnestly walking the narrow path.*
 
-## The Victory
+## Victory Is Assured
 
 Heaven on earth is inside all of us, unlocked through heart transformation—a shift from self-centered to God-centered worldview. Christ will return on judgment day, this temporary realm will be replaced by TMH's dwelling place (Heaven), and those who accepted Christ unite with TMH while those who rejected Him face eternal separation.
 

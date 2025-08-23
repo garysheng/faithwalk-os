@@ -43,11 +43,11 @@ The sinfrastructure is so pervasive that staying spiritually clean requires cons
 
 **The role models are catastrophic.** Look at who our culture elevates as examples of masculinity:
 
-Donald Trump—married multiple times, credibly accused of rape, connected to child trafficking networks. This is our president.
+- Donald Trump—married multiple times, credibly accused of rape, connected to child trafficking networks. This is our president.
 
-Andrew Tate and similar "manosphere" influencers—teaching young men to objectify women, glorify materialism, and mock the sacred institution of marriage.
+- Andrew Tate and similar "manosphere" influencers—teaching young men to objectify women, glorify materialism, and mock the sacred institution of marriage.
 
-Elon Musk—having children with multiple women while providing no real fatherhood to any of them, creating broken families in his wake while claiming to solve the birth rate crisis.
+- Elon Musk—having children with multiple women while providing no real fatherhood to any of them, creating broken families in his wake while claiming to solve the birth rate crisis.
 
 Even supposed Christian leaders fail spectacularly. Carl Lentz's infidelity. Jerry Falwell Jr.'s scandals. Countless pastors caught in corruption or sexual abuse.
 
@@ -74,9 +74,12 @@ It seems that most men have given up on trying. It's hard to blame. Too many hav
 
 
 ## Rebuild Yourself According To Divine Patterns Today
-The path forward isn't obvious, but it starts with honest assessment: **Am I becoming someone worthy of the trust and followership of an equally yoked wife? Am I developing the character, competence, and spiritual depth that family leadership requires?**
 
-The formation you received as a child was probably incomplete. The culture you absorbed growing up was compromised. The role models you had access to were almost certainly inadequate.
+The path forward isn't obvious, but it starts with an honest assessment: **Am I becoming someone worthy of the trust and followership of an equally yoked wife? Am I developing the character, competence, and spiritual depth that family leadership requires?**
+
+![Mirror](../artworks/mirror.png)
+
+Look in the mirror and honestly reflect. The formation you received as a child was probably incomplete. The culture you absorbed growing up was compromised. The role models you had access to were almost certainly inadequate.
 
 This means you must actively rebuild yourself according to divine patterns, not cultural expectations. You must seek out the rare examples of righteous fathers and study them intensively. *[See: Study Wise Spiritual Elders](../principles/study-wise-spiritual-elders.md) for guidance on finding and learning from mature believers.* You must create the spiritual infrastructure in your own life that enables you to create it for your family.
 

@@ -41,7 +41,7 @@ This realization launched me into consistent writing about faith and God's infin
 
 A coming 'God Wave' will sweep across the world as human systems fail and divine truth becomes undeniable.
 
-I feel called to be a small part of making that happen. From Atheist to Evangelist—this has been my journey.
+I feel called to be a small part of making that happen.
 
 After all, it's in my blood. At the end of 2024, I discovered that my great-grandfather in China was a pastor during a time when Christianity faced increasing persecution. The same Spirit that sustained him through trials seems to be calling me to bear witness in our own age of spiritual warfare.
 
@@ -83,10 +83,22 @@ The intricate complexity and apparent purposefulness in nature point to an intel
 - The [fine-tuning of physical constants](https://philosophytalk.org/blog/fine-tuning-argument-god/) that allow life to exist
 - The informational content in DNA
 - The precise calibration of cosmic conditions
+- The mathematical describability of the universe itself
 
 The fine-tuning is extraordinary—if fundamental constants like gravity and electromagnetic forces were altered even slightly, [life would be impossible](https://www.reasonablefaith.org/archived-forums/index.php?topic=6058838.0). The mathematical precision required suggests intentional design rather than random chance.
 
-Yet even more compelling to me personally was the question that had haunted my activist days: why did I feel so strongly that some things were truly right or wrong? This led me to what many consider the most powerful philosophical argument for God.
+### The Word-Based Universe
+*How information reveals the fundamental nature of reality.*
+
+Perhaps most compelling to me as an engineer is what [John Lennox calls](https://www.youtube.com/watch?v=3gKCwldMZS8&t=5422s&ab_channel=AlexO%27Connor) the "word-based universe." The opening of John's Gospel—"In the beginning was the Word"—isn't just theology; it's describing the informational foundation of reality itself.
+
+Consider that Einstein himself was puzzled by what he called "the most incomprehensible thing about the universe"—that it's comprehensible at all. Why should the universe be mathematically describable? Why can we use the language of mathematics to understand physical laws?
+
+The answer becomes clear when we recognize that information is fundamental to reality, yet information itself is non-material. As Lennox notes, "if information is not in the end material, then no material explanation is going to work for it." The DNA molecule isn't just complex—it's linguistically complex, containing a 3.4 billion letter word in a chemical alphabet where every letter must be in precisely the right order.
+
+This represents what may be the death blow to materialism, as physics itself demonstrates that information cannot be reduced to mere physics and chemistry. We live in an information-based universe that points directly to an intelligent, communicating Creator—the Word through whom all things were made.
+
+Just as compelling to me personally was the question that had haunted my activist days: why did I feel so strongly that some things were truly right or wrong? This led me to what many consider the most powerful philosophical argument for God.
 
 ### The Moral Argument
 *Why objective right and wrong can only exist if God exists.*
@@ -140,6 +152,15 @@ My own experience mirrors countless others who have encountered the divine. The 
 - Former atheists becoming believers based on personal experience
 - Consistent reports of divine encounters across cultures and time periods
 - The transformative power of Christian faith in addressing addiction, depression, and other life challenges
+
+### Experience Often Precedes Arguments
+*Why intellectual reasons frequently follow personal encounters with God.*
+
+As Oxford mathematician [John Lennox observes](https://www.youtube.com/watch?v=3gKCwldMZS8&t=5422s&ab_channel=AlexO%27Connor), "Intellectually one's reasons for God often come after one's experience of God." This insight resonates deeply with my own journey—the philosophical arguments I've outlined here largely came after my personal encounter with divine reality, not before.
+
+This pattern reveals something profound about how God works. If faith required mastering complex philosophical arguments first, as Lennox notes, "I would doubt whether that God was worth believing in." Instead, God meets people where they are—the Oxford professor and the illiterate former boxer alike can encounter the same transformative truth.
+
+Lennox shares the story of Stan Ford, an ex-fairground heavyweight boxer who "couldn't read or write" but became a Christian at 19 and later "could give you a summary by heart of every chapter in the Bible." Stan became "a living example of what God can do to a person," demonstrating that divine encounter transcends educational background or intellectual sophistication.
 
 But personal transformation wasn't the only experiential evidence I encountered. The miraculous healing I participated in opened my eyes to a realm of divine intervention that continues today.
 
@@ -223,6 +244,14 @@ Significant scholarly criticism has emerged regarding [natural selection's adequ
 - Natural selection can function as a circular or tautological argument
 - The theory lacks predictive power except in simple circumstances
 - Complex biological structures appear to require coordinated changes that random processes cannot adequately explain
+- Evolution depends on the existence of life and cannot explain life's origin
+
+### The Systems Biology Problem
+*How the interdependence of biological systems defies gradualistic explanations.*
+
+As [John Lennox points out](https://www.youtube.com/watch?v=3gKCwldMZS8&t=5422s&ab_channel=AlexO%27Connor), we face a fundamental chicken-and-egg problem in biology: "You can't get DNA without a cell. You can't get a living cell without DNA." This systems biology challenge reveals the inadequacy of step-by-step evolutionary explanations for life's origin.
+
+Evolution, whatever it does or doesn't do, "depends on the existence of life to do anything. So it cannot be the explanation for life." The information systems within living cells—particularly the linguistic complexity of DNA that even Richard Dawkins acknowledges cannot be generated by random processes—point to intelligent causation rather than undirected natural forces.
 
 These limitations suggest the need for [alternative explanations](https://darwinthenandnow.com/understanding-evolution/theory-and-consensus/natural-selection/natural-selection-critics/) involving intelligent design.
 

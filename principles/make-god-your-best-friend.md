@@ -30,6 +30,8 @@ The math is embarrassing. I probably spend 10x more time consuming other people'
 
 Bad default habits don't just steal time—they rewire our attention spans. After hours of scrolling, sitting quietly to listen for God's still small voice feels almost impossible. Our minds race, seeking the next notification, the next hit of artificial engagement.
 
+Sever the tie between relaxation/rest and phone time. Go for walks without a phone. Sleep without your phone in the room. When you're exhausted, instead of reaching for YouTube or social media, rewire yourself to make your default habit to talk to God.
+
 ## What to Ask Your Best Friend For
 
 If you're going to ask God for something—and friendship naturally involves requests—what should you ask for?

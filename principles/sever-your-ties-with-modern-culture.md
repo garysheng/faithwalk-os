@@ -58,7 +58,7 @@ Separation isn't comfortable—you'll feel lonely, misunderstood, and face press
 
 - **Seek fellowship** with people genuinely seeking God, not playing Christian on Sundays
 - **Find mentors** who can guide you through counter-cultural living *[See: Study Wise Spiritual Elders](study-wise-spiritual-elders.md)*
-- **Create new rhythms** for rest and community that honor rather than compromise God
+- **Create new rhythms** for rest that make continually connecting with God part of your daily routine *[See: Make God Your Best Friend](make-god-your-best-friend.md)*
 - **Choose entertainment** that feeds rather than starves your soul
 
 The path gets easier as you build spiritual infrastructure to replace what you're leaving behind. But you must be willing to leave first. You'll gain alignment between your beliefs and reality, freedom from destructive dependencies, and peace that comes from living according to God's design.

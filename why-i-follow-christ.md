@@ -296,7 +296,11 @@ These limitations suggest the need for [alternative explanations](https://darwin
 
 My journey from atheism to following Christ wasn't based on a single argument or experience—it was the cumulative weight of evidence from multiple sources that compelled not just belief, but action. The philosophical arguments provided the intellectual foundation, the historical evidence demonstrated the Bible's truth claims, the experiential evidence made it personal, and the statistical evidence showed the mathematical improbability of alternatives.
 
-Modern biblical apologetics employs this [cumulative case approach](https://applygodsword.com/apologetics-arguments-4-arguments-anyone-can-use-for-the-existence-of-god/), arguing that multiple lines of evidence together provide compelling reasons not just for belief, but for following Christ:
+Yet I must acknowledge an important truth: we can never definitively *prove* our Creator through human reason alone. Perhaps this is by divine design—if God's existence were mathematically demonstrable like a geometric theorem, would our response truly be faith, or merely logical necessity? The very nature of our place in God's reality means we are finite beings attempting to comprehend the infinite, creatures trying to fully grasp our Creator.
+
+This is where faith becomes not the enemy of reason, but its proper culmination. Faith isn't blind acceptance despite evidence—it's the reasonable step beyond what can be conclusively demonstrated. The evidence points strongly toward God, but the final step from "highly probable" to "I will stake my life on this" is the movement of faith.
+
+With this understanding of faith's proper role, the evidence I've presented throughout this document takes on its intended purpose—not to coerce belief, but to provide reasonable grounds for the step of faith. Modern biblical apologetics employs this [cumulative case approach](https://applygodsword.com/apologetics-arguments-4-arguments-anyone-can-use-for-the-existence-of-god/), arguing that multiple lines of evidence together provide compelling reasons not just for belief, but for following Christ:
 - Natural theology arguments (cosmological, teleological, moral)
 - Historical evidence for the Bible's central claims
 - Personal and testimonial evidence

@@ -16,11 +16,9 @@ Christ told His disciples, "I have called you friends" (John 15:15). Friendship 
 
 Prayer isn't meant to be confined to designated times and places. It's meant to be the background music of your life—an ongoing dialogue with your Creator about everything you're experiencing.
 
-The Oxford Group, a Christian movement from the 1930s, understood this. They taught that anyone can be in touch with God anywhere, anytime, if certain conditions are met: be quiet and still, listen, be honest about every thought, and test what comes against Scripture and spiritual fruit.
+One effective approach is to write down everything that comes to mind during prayer—not editing or judging, just capturing. Writing by hand without filtering can help bypass mental filters and capture impressions you might otherwise miss. Some sessions produce nothing useful; others deliver guidance so specific it's striking. The key is being quiet and still, listening honestly, and testing what comes against Scripture and spiritual fruit.
 
-They emphasized writing down everything that comes to mind during prayer—not editing or judging, just capturing. Because writing by hand without filtering can help bypass mental filters and capture impressions you might otherwise miss. Some sessions produce nothing useful; others deliver guidance so specific it's striking.
-
-My friend Peter Han embodies this approach. He maintains a small council of trusted friends for major life decisions—not because he can't hear God alone, but because "we collectively have the mind of Christ" (see 1 Corinthians 2:16), and spiritual discernment benefits from multiple perspectives. They pray together regularly, even when not co-located, seeking God's will rather than just His blessing on their preferred outcomes.
+But individual prayer is just one dimension of constant communion. Community discernment can deepen what we hear alone. My friend Peter Han embodies this approach. He maintains a small council of trusted friends for major life decisions—not because he can't hear God alone, but because "we collectively have the mind of Christ" (see 1 Corinthians 2:16), and spiritual discernment benefits from multiple perspectives. They pray together regularly, even when not co-located, seeking God's will rather than just His blessing on their preferred outcomes.
 
 ## The Obstacles to Intimacy
 
@@ -32,19 +30,21 @@ The math is embarrassing. I probably spend 10x more time consuming other people'
 
 Bad default habits don't just steal time—they rewire our attention spans. After hours of scrolling, sitting quietly to listen for God's still small voice feels almost impossible. Our minds race, seeking the next notification, the next hit of artificial engagement.
 
-Large, 10-20 person Bible studies can be helpful, but I've found the most growth in small groups of 3–4 where we go deep on real issues with people who actually know each other's struggles.
+## What to Ask Your Best Friend For
 
-## My Experience Building Divine Friendship
+If you're going to ask God for something—and friendship naturally involves requests—what should you ask for?
 
-One of my favorite ways to pray recently has been having soulful conversations about God with close friends. Not as a substitute for one to one communion with God, but as a complement to it.
+King Solomon provides the perfect template. When God appeared to him in a dream and offered to grant any request, Solomon could have asked for anything: long life, wealth, victory over enemies, personal happiness. Instead, he asked for "an understanding heart to judge Your people, that I may discern between good and evil" (1 Kings 3:9).
 
-When I talk through spiritual questions with friends who love God and have my back, it becomes a form of prayer itself. We're seeking God's heart together, testing insights against Scripture, and encouraging each other toward deeper faith. These conversations often reveal God's character and will more clearly than solo prayer sessions.
+Solomon asked for wisdom.
 
-I've also learned that prayer works best when it's honest rather than polished. God already knows what you're thinking and feeling. The pretense of formal religious language can actually create distance rather than intimacy.
+God was so pleased with this request that He not only granted Solomon unprecedented wisdom but also added the riches and honor Solomon hadn't even asked for. Why was God pleased? Because Solomon asked for the one thing that would enable him to handle everything else well.
 
-The Oxford Group taught that God cares about everything—names of people to contact, things to do, things to say, things that need to be made right. No concern is too small, no decision too mundane for divine input.
+My friend Ron follows this same principle. He prays for only one thing: wisdom. "Wisdom is the foundation of everything," he says. "If you have wisdom, you have everything." Rather than scattering prayers across a dozen requests, he focuses on the one gift that enables wise navigation of every circumstance.
 
-I'm learning to pray about work decisions, relationship tensions, even what to eat for dinner. Not because God is a cosmic butler, but because He cares about every aspect of my life and wants to be involved in all of it.
+Ron also warns against praying for certain virtues like patience: "If you pray for patience, God will give you more opportunities to be patient." Instead of asking for strength to endure difficult circumstances, we can ask for wisdom to navigate them skillfully—or sometimes avoid them altogether.
+
+This approach transforms how we think about prayer. Rather than treating God like a cosmic butler fulfilling our wish list, we seek the one gift that makes us more like Him: wisdom. And with wisdom comes better discernment about work decisions, relationship tensions, and every aspect of life God cares about.
 
 ## Building the Friendship
 
@@ -58,6 +58,8 @@ I'm learning to pray about work decisions, relationship tensions, even what to e
 
 **Talk to God about everything.** Share your fears, frustrations, excitement, confusion. Ask for guidance on decisions both big and small. Treat Him like the friend who knows everything about you and loves you anyway.
 
+**Focus your requests on wisdom.** Following King Solomon's model, consider making wisdom your primary prayer request. Instead of asking God to change your circumstances, ask Him to give you the wisdom to handle them well.
+
 ## Reflection and Practice
 
 **Ask yourself as you evaluate your relationship with God:**
@@ -66,6 +68,7 @@ I'm learning to pray about work decisions, relationship tensions, even what to e
 2. **Am I seeking God's will or just His blessing on my plans?**
 3. **Do I trust God enough to be completely honest with Him?**
 4. **Would my closest friends say I'm more influenced by God's voice or cultural voices?**
+5. **Am I asking God for wisdom to handle my circumstances, or just asking Him to change them?**
 
 The goal isn't perfect prayer habits—it's genuine friendship. God wants your authentic self, not your religious performance. He's already pursuing relationship with you. The question is whether you'll make space for the friendship He's offering.
 

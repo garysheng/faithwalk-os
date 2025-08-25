@@ -131,19 +131,6 @@ It's why I can confidently pursue building Christian communities and Truth-cente
 
 This is perhaps the most compelling reason I follow Christ: He doesn't just provide salvation for the afterlife—He makes this life intelligible, purposeful, and actionable in ways no other framework can achieve.
 
-### The Health and Flourishing Evidence
-*Why following Christ produces measurable benefits for human wellbeing.*
-
-While my primary reasons for following Christ are theological and philosophical, the scientific evidence for the health benefits of religious practice provides additional support for the Bible's truth claims. As someone who values empirical data, I found this research particularly compelling.
-
-Studies show that people who actively engage with faith experience dramatic health improvements: research published in [*JAMA Internal Medicine*](https://jamanetwork.com/journals/jamainternalmedicine/fullarticle/2521827) found that women who attended religious services more than once a week had a 33% lower chance of dying during a 16-year follow-up period. Additional [studies document](https://pmc.ncbi.nlm.nih.gov/articles/PMC3671693/) 25% reduction in deaths from cancer and cardiovascular disease, decreased anxiety and depression, and increased sense of meaning and life satisfaction. As Dr. David DeSteno notes, while general community involvement helps, "the effect size is larger for religious community."
-
-The mechanisms behind these benefits align perfectly with Christian practices. Prayer functions as a sophisticated physiological practice that reduces respiration rate, increases vagal tone, and puts the body in a state of calm rather than threat. Gratitude—central to Christian worship—has been [shown to reduce cheating](https://pmc.ncbi.nlm.nih.gov/articles/PMC7093674/) from 85% to nearly zero in laboratory studies. Religious rituals act as what [DeSteno calls](https://www.simonandschuster.com/books/How-God-Works/David-DeSteno/9781982129507) "sophisticated packages of life hacks" that coordinate multiple beneficial practices simultaneously.
-
-Perhaps most significantly, contemplating mortality—a core element of Christian teaching—temporarily reorients values toward what truly brings happiness and meaning. This represents what DeSteno calls a modern "Pascal's Wager": even from a purely pragmatic standpoint, following Christ produces measurable benefits in this life, not just promised rewards in the next.
-
-These findings don't prove the Bible's truth claims, but they do suggest that following Christ aligns remarkably well with what modern science shows promotes human flourishing—exactly what we'd expect if the Bible accurately describes how humans are designed to live.
-
 ## II. The Historical Evidence
 *The documented facts that demonstrate the Bible's truth claims.*
 
@@ -224,6 +211,19 @@ Research into [near-death experiences](https://christianscholars.com/near-death-
 - Transformative effects leading to increased faith and moral behavior
 
 Studies suggest NDEs occur in roughly [4% of the population](https://www.destinyimage.com/blog/john-burke-the-most-intriguing-near-death-experience-i-ever-heard) who have been clinically dead and resuscitated.
+
+### Health and Flourishing Evidence
+*Why following Christ produces measurable benefits for human wellbeing.*
+
+While my primary reasons for following Christ are theological and philosophical, the scientific evidence for the health benefits of religious practice provides additional experiential support for the Bible's truth claims. As someone who values empirical data, I found this research particularly compelling.
+
+Studies show that people who actively engage with faith experience dramatic health improvements: research published in [*JAMA Internal Medicine*](https://jamanetwork.com/journals/jamainternalmedicine/fullarticle/2521827) found that women who attended religious services more than once a week had a 33% lower chance of dying during a 16-year follow-up period. Additional [studies document](https://pmc.ncbi.nlm.nih.gov/articles/PMC3671693/) 25% reduction in deaths from cancer and cardiovascular disease, decreased anxiety and depression, and increased sense of meaning and life satisfaction. As Dr. David DeSteno notes, while general community involvement helps, "the effect size is larger for religious community."
+
+The mechanisms behind these benefits align perfectly with Christian practices. Prayer functions as a sophisticated physiological practice that reduces respiration rate, increases vagal tone, and puts the body in a state of calm rather than threat. Gratitude—central to Christian worship—has been [shown to reduce cheating](https://pmc.ncbi.nlm.nih.gov/articles/PMC7093674/) from 85% to nearly zero in laboratory studies. Religious rituals act as what [DeSteno calls](https://www.simonandschuster.com/books/How-God-Works/David-DeSteno/9781982129507) "sophisticated packages of life hacks" that coordinate multiple beneficial practices simultaneously.
+
+Perhaps most significantly, contemplating mortality—a core element of Christian teaching—temporarily reorients values toward what truly brings happiness and meaning. This represents what DeSteno calls a modern "Pascal's Wager": even from a purely pragmatic standpoint, following Christ produces measurable benefits in this life, not just promised rewards in the next.
+
+These findings don't prove the Bible's truth claims, but they do suggest that following Christ aligns remarkably well with what modern science shows promotes human flourishing—exactly what we'd expect if the Bible accurately describes how humans are designed to live.
 
 ## IV. What Sets Christ Apart
 *How following Christ stands apart from all other religious systems.*

@@ -1,7 +1,7 @@
 # Why I Follow Christ
 *How a once atheist engineer discovered that experience, faith, and reason lead to the same Truth—and why belief must become action.*
 
-![Sermon](artworks/sermon.png)
+![Pathways](artworks/pathway.png)
 
 ---
 

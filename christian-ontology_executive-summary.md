@@ -12,6 +12,8 @@ We are tripartite beings: spirit (our connection to TMH), soul (mind, will, emot
 
 We should trust TMH because his description of reality via the Bible is spiritually accurate. When you follow TMH's design for character, relationships, and purpose, holy doors open, relationships deepen, peace replaces anxiety, and clarity emerges. When you violate these principles, everything becomes harder and eventually breaks down.
 
+Christ as the Logos—the divine Word and rational principle—makes reality intelligible and actionable in ways that secular frameworks cannot. He provides the grounding upon which existence makes sense, serving as the ultimate decision-making framework that transforms chaos into coherence. For those who follow Him, Christ becomes the lens through which all truth, beauty, and goodness can be properly discerned and lived out.
+
 ## Salvation and Spiritual Transformation
 
 Salvation comes by grace (TMH loving you), through faith (you loving TMH back), for works (loving, embodying, and doing what TMH loves), evidenced by turning from sin (hating and resisting what TMH hates). The Holy Spirit convicts of sin, guides into truth, and enables transformation.

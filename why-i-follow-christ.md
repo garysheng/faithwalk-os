@@ -1,5 +1,5 @@
-# Why I Believe in Christ
-*How a once atheist engineer discovered that experience, faith, and reason lead to the same Truth.*
+# Why I Follow Christ
+*How a once atheist engineer discovered that experience, faith, and reason lead to the same Truth—and why belief must become action.*
 
 ![Sermon](artworks/sermon.png)
 
@@ -45,17 +45,17 @@ I feel called to be a small part of making that happen.
 
 After all, it's in my blood. At the end of 2024, I discovered that my great-grandfather in China was a pastor during a time when Christianity faced increasing persecution. The same Spirit that sustained him through trials seems to be calling me to bear witness in our own age of spiritual warfare.
 
-What began as musical and intellectual curiosity in 2021 has become a burning conviction: Christ is not just historically true—He is the answer our generation desperately needs.
+What began as musical and intellectual curiosity in 2021 has become a burning conviction: Christ is not just historically true—He is the answer our generation desperately needs. And truth without action is meaningless. That's why I don't just believe in Christ—I follow Him.
 
 ---
 
-**Disclaimer:** To whatever extent the following evidence and arguments resonate with you and ring true, I give all glory and credit to God. Any mistakes, improper arguments, or shortcomings in this analysis are entirely my responsibility. I remain open to your feedback and correction, as I am still learning and growing in my faith journey.
+**Disclaimer:** To whatever extent the following evidence and arguments resonate with you and compel action, I give all glory and credit to God. Any mistakes, improper arguments, or shortcomings in this analysis are entirely my responsibility. I remain open to your feedback and correction, as I am still learning and growing in my journey of following Christ.
 
 ---
 
-## Why I Believe: The Evidence That Convinced Me
+## Why I Follow: The Evidence That Compelled Action
 
-My personal journey led me to investigate the intellectual foundations for faith. What I discovered was that belief in Christ rests on multiple converging lines of evidence and argument. While my heart was moved by experience, my mind was convinced by reason. Here's the comprehensive case that solidified my faith:
+My personal journey led me to investigate the intellectual foundations for faith. What I discovered was that following Christ rests on multiple converging lines of evidence and argument that demand not just mental assent, but life transformation. While my heart was moved by experience, my mind was convinced by reason, and my will was compelled to action. Here's the comprehensive case that not only convinced my intellect but transformed how I live:
 
 ## I. The Philosophical Foundation
 *The rational arguments that provide the intellectual scaffolding for belief.*
@@ -109,6 +109,27 @@ Without God, objective moral values cannot exist—they become merely subjective
 - Therefore, God exists
 
 This isn't just philosophical speculation—it explains why my activism felt empty when divorced from transcendent purpose.
+
+### Christ as Logos: The Ultimate Decision-Making Framework
+*Why following Christ makes reality intelligible and actionable.*
+
+Of all the philosophical foundations for following Christ, perhaps none has been more practically transformative than understanding Christ as the Logos—the divine Word and rational principle that makes reality coherent and actionable.
+
+When John's Gospel declares "In the beginning was the Word [Logos]," it reveals that Christ is the divine reason that orders and makes sense of everything. This isn't theological abstraction—it's the most practical truth I've discovered.
+
+#### The Coherence Problem and Solution
+
+Before following Christ, I experienced the fundamental coherence problem of secular living: without an objective foundation for truth, beauty, and goodness, life becomes endless contradictory signals and competing frameworks. The result is existential chaos disguised as progress.
+
+The more I understand Christ and His teachings, the more sense everything makes. Following Christ provides "divine sense-making infrastructure"—a foundational operating system that orders reality, enables proper discernment of truth from falsehood, guides decision-making, detects cultural deception, and creates life coherence under one framework.
+
+#### Practical Framework in Action
+
+Trying to see reality as Christ might see it transforms how I approach everything. Every major decision—career, relationships, investments, priorities—gets evaluated through one question: How does this align with following Christ? This eliminates the paralysis of infinite options and cuts through competing cultural pressures.
+
+It's why I can confidently pursue building Christian communities and Truth-centered technology without worrying about secular approval. Unlike secular frameworks I've tried (humanism, activism, stoicism), which either rely on finite human reason, assume materialistic foundations, or fail under pressure, Christ as Logos provides objective truth independent of human consensus or cultural trends.
+
+This is perhaps the most compelling reason I follow Christ: He doesn't just provide salvation for the afterlife—He makes this life intelligible, purposeful, and actionable in ways no other framework can achieve.
 
 ## II. The Historical Evidence
 *The documented facts that demonstrate Christianity's truth claims.*
@@ -257,12 +278,12 @@ These limitations suggest the need for [alternative explanations](https://darwin
 
 ---
 
-## Conclusion: The Cumulative Case
-*How all the evidence points to one inescapable truth.*
+## Conclusion: The Cumulative Case for Following Christ
+*How all the evidence points to one inescapable truth that demands response.*
 
-My journey from atheism to faith wasn't based on a single argument or experience—it was the cumulative weight of evidence from multiple sources. The philosophical arguments provided the intellectual foundation, the historical evidence demonstrated Christianity's truth claims, the experiential evidence made it personal, and the statistical evidence showed the mathematical improbability of alternatives.
+My journey from atheism to following Christ wasn't based on a single argument or experience—it was the cumulative weight of evidence from multiple sources that compelled not just belief, but action. The philosophical arguments provided the intellectual foundation, the historical evidence demonstrated Christianity's truth claims, the experiential evidence made it personal, and the statistical evidence showed the mathematical improbability of alternatives.
 
-Modern Christian apologetics employs this [cumulative case approach](https://applygodsword.com/apologetics-arguments-4-arguments-anyone-can-use-for-the-existence-of-god/), arguing that multiple lines of evidence together provide compelling reasons for belief:
+Modern Christian apologetics employs this [cumulative case approach](https://applygodsword.com/apologetics-arguments-4-arguments-anyone-can-use-for-the-existence-of-god/), arguing that multiple lines of evidence together provide compelling reasons not just for belief, but for following Christ:
 - Natural theology arguments (cosmological, teleological, moral)
 - Historical evidence for Christianity's central claims
 - Personal and testimonial evidence
@@ -271,15 +292,15 @@ Modern Christian apologetics employs this [cumulative case approach](https://app
 
 The evidence ranges from abstract philosophical arguments to concrete historical claims, from personal testimonies to scientific observations, creating a comprehensive framework that addresses both intellectual and experiential dimensions of human existence.
 
-This multifarious approach helps explain why belief in God and Christianity continues to attract adherents across diverse cultural, educational, and social backgrounds. It's why a former atheist engineer from Google can find himself compelled by the same Truth that has transformed lives for two millennia.
+This multifarious approach helps explain why following Christ continues to attract adherents across diverse cultural, educational, and social backgrounds who are willing to let truth transform their lives. It's why a former atheist engineer from Google can find himself compelled not just to believe, but to reorder his entire existence around the same Truth that has transformed lives for two millennia.
 
-Everyone worships something. The question isn't whether you'll have faith—it's what you'll place your faith in. After years of investigation, meditation, and prayer, I've found that only Christ provides the peace, purpose, and truth that my soul was searching for.
+Everyone worships something. The question isn't whether you'll have faith—it's what you'll place your faith in and how you'll live it out. After years of investigation, meditation, and prayer, I've found that only following Christ provides the peace, purpose, and truth that my soul was searching for.
 
-The real risk isn't believing in God. The real risk is living as if He doesn't exist.
+The real risk isn't believing in God. The real risk is living as if He doesn't exist—or believing in Him without allowing that belief to transform how you actually live.
 
 ---
 
-*This testimony represents my personal journey and the evidence that convinced me. Whether you're skeptical or genuinely curious, I invite you to investigate these claims for yourself. Life is full of surprises, especially if you keep an open mind and, most importantly, an open heart.*
+*This testimony represents my personal journey and the evidence that compelled me to action. Whether you're skeptical or genuinely curious, I invite you to investigate these claims for yourself—not just intellectually, but practically. Life is full of surprises, especially if you keep an open mind and, most importantly, an open heart willing to be transformed.*
 
 *God bless you.*
 

@@ -131,8 +131,21 @@ It's why I can confidently pursue building Christian communities and Truth-cente
 
 This is perhaps the most compelling reason I follow Christ: He doesn't just provide salvation for the afterlife—He makes this life intelligible, purposeful, and actionable in ways no other framework can achieve.
 
+### The Health and Flourishing Evidence
+*Why following Christ produces measurable benefits for human wellbeing.*
+
+While my primary reasons for following Christ are theological and philosophical, the scientific evidence for the health benefits of religious practice provides additional support for the Bible's truth claims. As someone who values empirical data, I found this research particularly compelling.
+
+Studies show that people who actively engage with faith experience dramatic health improvements: research published in [*JAMA Internal Medicine*](https://jamanetwork.com/journals/jamainternalmedicine/fullarticle/2521827) found that women who attended religious services more than once a week had a 33% lower chance of dying during a 16-year follow-up period. Additional [studies document](https://pmc.ncbi.nlm.nih.gov/articles/PMC3671693/) 25% reduction in deaths from cancer and cardiovascular disease, decreased anxiety and depression, and increased sense of meaning and life satisfaction. As Dr. David DeSteno notes, while general community involvement helps, "the effect size is larger for religious community."
+
+The mechanisms behind these benefits align perfectly with Christian practices. Prayer functions as a sophisticated physiological practice that reduces respiration rate, increases vagal tone, and puts the body in a state of calm rather than threat. Gratitude—central to Christian worship—has been [shown to reduce cheating](https://pmc.ncbi.nlm.nih.gov/articles/PMC7093674/) from 85% to nearly zero in laboratory studies. Religious rituals act as what [DeSteno calls](https://www.simonandschuster.com/books/How-God-Works/David-DeSteno/9781982129507) "sophisticated packages of life hacks" that coordinate multiple beneficial practices simultaneously.
+
+Perhaps most significantly, contemplating mortality—a core element of Christian teaching—temporarily reorients values toward what truly brings happiness and meaning. This represents what DeSteno calls a modern "Pascal's Wager": even from a purely pragmatic standpoint, following Christ produces measurable benefits in this life, not just promised rewards in the next.
+
+These findings don't prove the Bible's truth claims, but they do suggest that following Christ aligns remarkably well with what modern science shows promotes human flourishing—exactly what we'd expect if the Bible accurately describes how humans are designed to live.
+
 ## II. The Historical Evidence
-*The documented facts that demonstrate Christianity's truth claims.*
+*The documented facts that demonstrate the Bible's truth claims.*
 
 While philosophy provided the logical foundation, I needed more than abstract arguments. As someone trained in data analysis, I wanted concrete, verifiable evidence. What I found in the historical record was nothing short of remarkable.
 
@@ -146,7 +159,7 @@ The accuracy of biblical prophecies provides compelling evidence for divine auth
 
 The [Dead Sea Scrolls](https://www.growingchristians.org/christian-evidences/are-biblical-prophecies-accurate) confirm these prophecies were written centuries before their fulfillment, eliminating post-facto additions.
 
-But of all the historical claims of Christianity, none is more central—or more thoroughly documented—than the resurrection of Jesus Christ. This single event, if true, changes everything.
+But of all the historical claims in the Bible, none is more central—or more thoroughly documented—than the resurrection of Jesus Christ. This single event, if true, changes everything.
 
 ### The Resurrection
 *Why the best-attested miracle in history demands a response.*
@@ -212,21 +225,21 @@ Research into [near-death experiences](https://christianscholars.com/near-death-
 
 Studies suggest NDEs occur in roughly [4% of the population](https://www.destinyimage.com/blog/john-burke-the-most-intriguing-near-death-experience-i-ever-heard) who have been clinically dead and resuscitated.
 
-## IV. Christianity's Unique Claims
-*How Christianity stands apart from all other religious systems.*
+## IV. What Sets Christ Apart
+*How following Christ stands apart from all other religious systems.*
 
-As I investigated various world religions during my journey, I needed to understand what made Christianity distinctive. The differences weren't just theological—they were fundamental to the nature of God and humanity's relationship with Him.
+As I investigated various world religions during my journey, I needed to understand what made following Christ distinctive. The differences weren't just theological—they were fundamental to the nature of God and humanity's relationship with Him.
 
-### What Sets Christianity Apart
-*Why Christianity's core message is unlike any other religion.*
+### What Sets Following Christ Apart
+*Why the Bible's core message is unlike any other religion.*
 
-Several factors distinguish Christianity from other world religions:
+Several factors distinguish following Christ from other world religions:
 - The concept of grace rather than works-based salvation
 - God taking the initiative to reach humanity rather than humans earning divine favor
 - The historical specificity of Jesus' life, death, and resurrection
-- The [rapid, peaceful spread](https://reasons.org/explore/blogs/reflections/ten-reasons-for-the-rapid-spread-of-christianity-part-1-social-factors) of early Christianity despite persecution
+- The [rapid, peaceful spread](https://reasons.org/explore/blogs/reflections/ten-reasons-for-the-rapid-spread-of-christianity-part-1-social-factors) of the early church despite persecution
 
-One of the biggest intellectual obstacles I faced as a skeptic was the problem of evil. How could a good God allow suffering? Rather than avoiding this question, I found that Christianity provides the most satisfactory response.
+One of the biggest intellectual obstacles I faced as a skeptic was the problem of evil. How could a good God allow suffering? Rather than avoiding this question, I found that the Bible provides the most satisfactory response.
 
 ### The Problem of Evil
 *Why suffering doesn't disprove God—it actually points to Him.*
@@ -242,7 +255,7 @@ The existence of evil actually presupposes objective moral standards, which poin
 ## V. The Mathematical Evidence
 *How the numbers reveal the impossibility of coincidence.*
 
-As someone with a background in data analysis, I was particularly drawn to the statistical arguments for God's existence. When you run the numbers, the probability of our universe and Christianity's claims being the result of chance becomes virtually zero.
+As someone with a background in data analysis, I was particularly drawn to the statistical arguments for God's existence. When you run the numbers, the probability of our universe and the Bible's claims being the result of chance becomes virtually zero.
 
 ### Statistical Improbabilities
 *Why the math strongly favors divine intervention over random chance.*
@@ -251,7 +264,7 @@ The mathematical improbability of various phenomena provides additional support:
 - The fine-tuning of cosmic constants
 - The fulfillment of biblical prophecies
 - The complexity of biological information systems
-- The statistical improbability of early Christianity's success without divine intervention
+- The statistical improbability of the early church's success without divine intervention
 
 ## VI. Problems with Naturalistic Alternatives
 *Why secular explanations fall short of explaining reality.*
@@ -281,11 +294,11 @@ These limitations suggest the need for [alternative explanations](https://darwin
 ## Conclusion: The Cumulative Case for Following Christ
 *How all the evidence points to one inescapable truth that demands response.*
 
-My journey from atheism to following Christ wasn't based on a single argument or experience—it was the cumulative weight of evidence from multiple sources that compelled not just belief, but action. The philosophical arguments provided the intellectual foundation, the historical evidence demonstrated Christianity's truth claims, the experiential evidence made it personal, and the statistical evidence showed the mathematical improbability of alternatives.
+My journey from atheism to following Christ wasn't based on a single argument or experience—it was the cumulative weight of evidence from multiple sources that compelled not just belief, but action. The philosophical arguments provided the intellectual foundation, the historical evidence demonstrated the Bible's truth claims, the experiential evidence made it personal, and the statistical evidence showed the mathematical improbability of alternatives.
 
-Modern Christian apologetics employs this [cumulative case approach](https://applygodsword.com/apologetics-arguments-4-arguments-anyone-can-use-for-the-existence-of-god/), arguing that multiple lines of evidence together provide compelling reasons not just for belief, but for following Christ:
+Modern biblical apologetics employs this [cumulative case approach](https://applygodsword.com/apologetics-arguments-4-arguments-anyone-can-use-for-the-existence-of-god/), arguing that multiple lines of evidence together provide compelling reasons not just for belief, but for following Christ:
 - Natural theology arguments (cosmological, teleological, moral)
-- Historical evidence for Christianity's central claims
+- Historical evidence for the Bible's central claims
 - Personal and testimonial evidence
 - The explanatory power of theism in addressing ultimate questions
 - The pragmatic benefits of religious faith
@@ -328,3 +341,7 @@ The real risk isn't believing in God. The real risk is living as if He doesn't e
 18. [Natural Selection Critics](https://darwinthenandnow.com/understanding-evolution/theory-and-consensus/natural-selection/natural-selection-critics/)
 19. [Arguments for God's Existence](https://applygodsword.com/apologetics-arguments-4-arguments-anyone-can-use-for-the-existence-of-god/)
 20. [20 Arguments for God's Existence - Peter Kreeft](https://www.peterkreeft.com/topics-more/20_arguments-gods-existence.htm)
+21. [Religious Service Attendance and Mortality - JAMA Internal Medicine](https://jamanetwork.com/journals/jamainternalmedicine/fullarticle/2521827)
+22. [Religion, Spirituality, and Health - PMC](https://pmc.ncbi.nlm.nih.gov/articles/PMC3671693/)
+23. [Religious Involvement and Health Outcomes - Journal of Religion and Health](https://pmc.ncbi.nlm.nih.gov/articles/PMC7093674/)
+24. [David DeSteno - How God Works: The Science Behind the Benefits of Religion](https://www.simonandschuster.com/books/How-God-Works/David-DeSteno/9781982129507)

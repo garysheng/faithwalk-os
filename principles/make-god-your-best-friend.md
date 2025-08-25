@@ -50,6 +50,8 @@ This approach transforms how we think about prayer. Rather than treating God lik
 
 ## Building the Friendship
 
+![Looking Up](../artworks/lookingup.png)
+
 **Replace digital defaults with divine dialogue.** Every time you reach for your phone out of boredom or anxiety, pause and talk to God instead. Even 30 seconds of "God, what do you want me to know right now?" beats scrolling.
 
 **Write without editing.** Keep a physical notebook for prayer. Write down everything that comes to mind—thoughts, impressions, random ideas. Test it later against Scripture, wise counsel, and spiritual fruit, but capture it first.

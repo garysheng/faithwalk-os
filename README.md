@@ -8,6 +8,8 @@ Faith Walk OS documents my worldview and way of life, as a follower of Christ. T
 
 - **[Browse Principles](principles/)** - Detailed frameworks and practical applications for living out the faith
 
+- **[Browse Patterns](patterns/)** - Analyses of the divine patterns that God seems to have imbued into reality
+
 - **[Browse Perspectives](perspectives/)** - Long-form assessments of major systems that believers are called to change
 
 - **[Browse Poems](poems/)** - Poetic meditations on the realities of following Christ in our time.

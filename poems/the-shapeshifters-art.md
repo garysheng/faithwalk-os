@@ -9,28 +9,28 @@ Never creating—only counterfeiting calls.
 He takes what God made good and true and right,
 Twists kernels of truth into blinding light.
 
-Every evil bears the source code of good—
 Socialism's care for brotherhood,
-But Satan made it state-worship's shrine,
-Where millions died for the Party line.
+Satan makes it state-worship's shrine,
+Where millions die for the Party line,
+And love becomes servitude.
 
 Nationalism's love of soil and kin,
-Satan twisted into racial sin—
-Heritage became hatred's flame,
-As Jews were murdered in nation's name.
+Satan twists into racial sin—
+Heritage becomes hatred's flame,
+Fueling genocide in nation's name.
 
 Democracy's voice of people's will,
-Satan turned to empire's kill—
-"Freedom" justified the bombs that fell
-Across the lands we "liberated" to hell.
+Satan turns to empire's kill—
+"Freedom" justifies the bombs that fall
+Across the lands we "liberate" to hell.
 
-Science engineered the crisis deep,
-Then sold the state as salvation's keep.
+Science engineers the crisis deep,
+Then sells the state as salvation's keep.
 Medicine sells eternal health,
 But steals our soul's eternal wealth.
 
 Spirituality's sacred thirst,
-Satan poisoned, made it cursed—
+Satan poisons, makes it cursed—
 New Age crystals, chakra wheels,
 Eastern paths with Western deals.
 
@@ -40,7 +40,7 @@ Self-worship dressed as ancient rite,
 Darkness masquerading light.
 
 Love that shields the vulnerable,
-Satan made manipulable—
+Satan makes manipulable—
 "Love is love" the slogan cries,
 While sacred bonds dissolve and die.
 
@@ -49,14 +49,14 @@ To "progress" made to yield.
 Sacred boundaries called "hate,"
 While chaos storms the garden gate.
 
-Freedom's wholesome dream took flight—
+Freedom's wholesome dream takes flight—
 Free the builder, spark the light;
 Lift bureaucracy's heavy yoke,
 Let sleeping genius wake and work.
 
-But tech-lords wore the freedom mask,
-Made surveillance freedom's task;
-Liberty became the brand
+But tech-lords wear the freedom mask,
+Make surveillance freedom's task;
+Liberty becomes the brand
 For oligarchy's iron hand.
 
 For two millennia the game's the same:
@@ -70,7 +70,7 @@ In every age new empires call,
 Each claims truth but leads to fall.
 
 But worship what is not the Way,
-And death is all you'll earn today.
+And death is all you earn today.
 The pattern holds through every age—
 False logos writes death's dark page.
 
@@ -87,20 +87,10 @@ Apart from Christ's own holy way—
 Know the Shapeshifter is there,
 Weaving lies in sacred prayer.
 Every false logos must fail,
-Every counterfeit grow pale.
+Every counterfeit grows pale.
 
 Only Christ, the true Logos,
-Heals what sin and Satan broke.
-Till His victory's complete,
-Test each voice: Does it lead to His feet?
-
-For Satan's greatest trick by far
-Is making false light shine like a star,
-While the true Light humbly stands
-With nail-scarred, outstretched hands.
-
-So test each spirit, weigh each call—
-Does it bow to Christ as Lord of all?
+Heals what sin and Satan break.
 For only Truth Himself can free
 Us from the Shapeshifter's mockery.
 

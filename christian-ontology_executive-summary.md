@@ -12,7 +12,9 @@ We are tripartite beings: spirit (our connection to TMH), soul (mind, will, emot
 
 We should trust TMH because his description of reality via the Bible is spiritually accurate. When you follow TMH's design for character, relationships, and purpose, holy doors open, relationships deepen, peace replaces anxiety, and clarity emerges. When you violate these principles, everything becomes harder and eventually breaks down.
 
-Christ as the Logos—the divine Word and rational principle—makes reality intelligible and actionable in ways that secular frameworks cannot. He provides the grounding upon which existence makes sense, serving as the ultimate decision-making framework that transforms chaos into coherence. For those who follow Him, Christ becomes the lens through which all truth, beauty, and goodness can be properly discerned and lived out.
+Christ as the Logos—the divine Word and rational principle—makes reality intelligible and actionable in ways that secular frameworks cannot. For centuries, Greek philosophers like Heraclitus and the Stoics searched for this hidden harmony that orders all existence, while Eastern traditions like Taoism intuited an ultimate Way. Christ reveals Himself as the answer they were seeking: the personal Logos who became flesh.
+
+He provides the grounding upon which existence makes sense, serving as the ultimate decision-making framework that transforms chaos into coherence. In our age of moral relativism where "your truth" and "my truth" fragment society, Christ as Logos offers objective truth that transcends human opinion while remaining personally accessible. Every thing has its logos (purpose and design), and sin is the disconnection of things from their true logoi. When we align with Christ, we discover the true purpose of all things, and reality transforms from dead material into vibrant, meaningful existence.
 
 ## Salvation and Spiritual Transformation
 

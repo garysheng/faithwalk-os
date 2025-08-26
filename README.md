@@ -10,6 +10,8 @@ Faith Walk OS documents my worldview and way of life, as a follower of Christ. T
 
 - **[Browse Perspectives](perspectives/)** - Long-form assessments of major systems that believers are called to change
 
+- **[Browse Poems](poems/)** - Poetic meditations on the realities of following Christ in our time.
+
 - **[Why I Follow Christ](why-i-follow-christ.md)** - My journey from atheist to follower of Christ: the arguments and experiences that drew me to Him
 
 ## Why Document Your Christian Worldview?

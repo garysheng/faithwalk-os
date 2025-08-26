@@ -34,6 +34,8 @@ Here are a few examples of wise elders that have shaped me:
 
 - Steven Garber. His book "The Fabric of Faithfulness" connected so many dots for me about how it's important to see it as a very difficult and urgent problem of connecting one's Christian faith to lived action, especially in this increasingly fallen world. He reminds me that one of the priorities of education should be to help young people bridge this gap between belief and practice.
 
+- M. Scott Peck. His book "People of the Lie" offers profound insights into the nature of human evil and the hope for healing. As a psychiatrist and spiritual seeker, Peck bridges psychology and spirituality in ways that illuminate both the darkness we face and the light that can overcome it. His exploration of evil as a refusal to face one's own failures resonates deeply with Christian understanding of sin and redemption.
+
 - My friend Peter Han—his Tree of Life vs. Tree of Knowledge teaching reshaped how I trust God with money and work.
 
 No single denomination contains all the elders worth learning from. Each has profound wisdom—and serious failings. Don’t let labels limit your learning. Test teaching by Scripture and fruit, not affiliation. When you find elders who resonate, go deep.

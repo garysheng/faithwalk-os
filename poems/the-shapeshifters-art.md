@@ -24,45 +24,40 @@ Satan turned to empire's kill—
 "Freedom" justified the bombs that fell
 Across the lands we "liberated" to hell.
 
-Science's quest to understand,
-Became control's iron hand.
-Medicine's gift to heal and mend,
-Twisted to serve profit's end.
+Science engineered the crisis deep,
+Then sold the state as salvation's keep.
+Medicine sells eternal health,
+But steals our soul's eternal wealth.
 
-Knowledge meant to set us free,
-Became thought-policing's key.
-Technology to connect and serve,
-Now surveillance's ever-watching nerve.
+Spirituality's sacred thirst,
+Satan poisoned, made it cursed—
+New Age crystals, chakra wheels,
+Eastern paths with Western deals.
+
+"Find your truth," the gurus say,
+"You are god," they lead astray.
+Self-worship dressed as ancient rite,
+Darkness masquerading light.
 
 Love that shields the vulnerable,
 Satan made manipulable—
 "Love is love" the slogan cries,
 While sacred bonds dissolve and die.
 
-Marriage, family, childhood's gate—
-Redefined as "love" and "hate."
-Compassion weaponized to shame
-Those who'd guard the sacred frame.
+Marriage, family, childhood's shield—
+To "progress" made to yield.
+Sacred boundaries called "hate,"
+While chaos storms the garden gate.
 
-Rainbowed "Pride" became the claim,
-The primal sin enthroned as fame;
-Sin made sacrament and rite,
-Parades of color veil the night.
-
-Freedom's wholesome dream began—
-Free the builder, serve the plan;
+Freedom's wholesome dream took flight—
+Free the builder, spark the light;
 Lift bureaucracy's heavy yoke,
 Let sleeping genius wake and work.
 
-But "libertarians" took the stage,
-Built a different kind of cage;
-"Let the algorithms decide"—
-Pre-crime watches, freedom died.
-
-Enterprise meant to heal and serve
-Twisted into power's curve;
-"Free markets" rigged for corporate kings,
-While wholesome ventures clip their wings.
+But tech-lords wore the freedom mask,
+Made surveillance freedom's task;
+Liberty became the brand
+For oligarchy's iron hand.
 
 For two millennia the game's the same:
 Take the Logos, change the name.
@@ -84,45 +79,30 @@ Only corrupts what he can catch.
 Every idol bears God's face,
 Distorted by unholy grace.
 
-Beware the host that feels so pure,
-The cause that seems so right and sure.
-If it asks for ultimate devotion,
-If it stirs revolutionary motion,
+Beware what feels so pure and bright,
+Yet asks for ultimate devotion's might.
+If it claims to save the world's decay
+Apart from Christ's own holy way—
 
-If it promises to save the world
-Through human flags unfurled,
-If it claims exclusive truth
-Apart from Christ's own proof—
-
-Then know the Shapeshifter's there,
-Weaving lies in truthful prayer.
-For every false logos must fail,
+Know the Shapeshifter is there,
+Weaving lies in sacred prayer.
+Every false logos must fail,
 Every counterfeit grow pale.
 
 Only Christ, the true Logos,
-Can heal what sin and Satan broke.
-Only He contains all truth,
-Beauty, goodness without reproof.
-
-All other ways are broken parts,
-Fragments of divine arts
-Stolen, twisted, weaponized
-To keep the soul from paradise.
-
-Worship the false way, reap death's wage.
-Follow Christ, turn history's page.
-For in Him all logoi find
-Their purpose, truth, and peace combined.
-
-The victory is already won—
-Evil's reign will soon be done.
-Till then, test every voice you hear:
-Does it draw to Christ more near?
+Heals what sin and Satan broke.
+Till His victory's complete,
+Test each voice: Does it lead to His feet?
 
 For Satan's greatest trick by far
 Is making false light shine like a star,
 While the true Light humbly stands
 With nail-scarred, outstretched hands.
+
+So test each spirit, weigh each call—
+Does it bow to Christ as Lord of all?
+For only Truth Himself can free
+Us from the Shapeshifter's mockery.
 
 ---
 

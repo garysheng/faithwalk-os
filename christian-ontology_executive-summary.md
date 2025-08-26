@@ -105,7 +105,7 @@ The pool of fully committed people is tiny, but you only need to find the right 
 
 Heaven on earth is inside all of us, unlocked through heart transformation—a shift from self-centered to God-centered worldview. Christ will return on judgment day, this temporary realm will be replaced by TMH's dwelling place (Heaven), and those who accepted Christ unite with TMH while those who rejected Him face eternal separation.
 
-The victory is already assured through Christ. We simply follow instructions: be baptized, partake of communion, take up your cross, love enemies, speak truth in love, and trust divine timing for justice.
+The victory is already assured through Christ. We simply follow Him and his instructions, which includes but is not limited to: get baptized, partake of communion, take up your cross, love enemies, speak truth in love, and trust divine timing for justice.
 
 Reality operates on spiritual laws. Learn them. Follow them. Build with them. Everything else is fumbling in the dark.
 

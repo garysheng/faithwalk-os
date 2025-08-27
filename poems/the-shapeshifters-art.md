@@ -1,6 +1,7 @@
 # The Shapeshifter's Art
 
-*A poem about how Satan splinters logoi from their Source, then crowns the shards as whole.*
+
+***A poem about how Satan splinters logoi from their Source, then crowns the shards as whole.***
 
 The Shapeshifter prowls through history's maze,
 Never creating from scratch—only fakes and frays.

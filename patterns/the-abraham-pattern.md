@@ -26,6 +26,30 @@ God often reveals His plans step-by-step rather than all at once. He calls peopl
 
 **Moses' experience: impossible situation → command to move forward → obedient action required → miracle revealed → full deliverance accomplished.**
 
+## New Testament Example: The Disciples' Calling
+
+**Step 1 - Simple Initial Call:** Jesus told Peter and Andrew "Follow me, and I will make you fishers of men" *(Matthew 4:19)*. He didn't explain what this meant, how it would happen, or what it would cost them. They simply left their nets and followed.
+
+**Step 2 - Basic Training Revealed:** As they walked with Jesus, the disciples gradually learned they would be His witnesses, but they still misunderstood the mission. They expected an earthly kingdom and argued about positions *(Mark 10:35-37)*.
+
+**Step 3 - True Mission Unveiled:** Only after the resurrection did Jesus reveal the full scope: "Go and make disciples of all nations" *(Matthew 28:19)*. The global mission was far beyond their initial understanding of following a Jewish teacher.
+
+**Step 4 - Power and Purpose Given:** At Pentecost, after they had waited in obedience as instructed *(Acts 1:4)*, the Holy Spirit came and they finally understood how to be "fishers of men." The supernatural power and bold preaching followed their faithful waiting and obedience.
+
+**The disciples' journey: simple call to follow → gradual training through walking together → true mission revealed after resurrection → power given after obedient waiting.**
+
+## Modern Saint Example: St. Paisios
+
+**Step 1 - Early Spiritual Crisis:** As a youth named Arsenios, he was troubled by skepticism after hearing Darwinian theories. He desperately sought a sign from God, praying fervently but receiving no immediate answer or clarity about his faith.
+
+**Step 2 - Surrender Before Revelation:** Only after he surrendered his insistence on a sign and resolved to follow Christ out of love—even without further proof—did Christ appear to him in a vision. God revealed Himself only after the test of faith, not before.
+
+**Step 3 - Gradual Monastic Formation:** Throughout his formative years, Paisios underwent prolonged periods of uncertainty and spiritual warfare. He learned obedience to spiritual elders and humility, discovering God's will step by step through prayer and ongoing challenges rather than receiving instant knowledge about his future path.
+
+**Step 4 - Hidden Service Emerges:** His route included apparent detours, illness, and hidden years of labor. The fruits of his sanctity weren't immediately obvious but emerged as he responded, one act at a time, to needs placed before him. His spiritual influence became clear only through decades of faithful service.
+
+**St. Paisios' journey: spiritual crisis without immediate answers → surrender rewarded with revelation → gradual formation through trials → hidden faithfulness revealed as lasting influence.**
+
 ## Modern Example: Starting a Ministry
 
 Someone feels called to serve others but doesn't see the full plan. They begin with simple acts of service—visiting elderly neighbors, helping at church, or mentoring youth. As they faithfully take these initial steps, God opens new doors: opportunities to lead, resources appearing, connections forming. The full ministry vision emerges through walking in obedience, not through detailed advance planning.

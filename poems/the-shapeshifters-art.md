@@ -4,10 +4,10 @@
 
 ---
 
-The Shapeshifter prowls through history's halls,
+Satan shape shifts through history's halls,
 Never creating—only counterfeiting calls.
-He takes what God made good and true and right,
-Twists kernels of truth into blinding light.
+He corrupts what God made good and right,
+Turns kernels of truth into blinding light.
 
 Socialism's care for brothers' good,
 Satan conjures an unholy priesthood.

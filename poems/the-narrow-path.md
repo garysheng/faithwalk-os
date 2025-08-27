@@ -34,19 +34,19 @@ When ego's voice grows soft and still.
 His Spirit in my spirit guides—
 One choice aligns with His good will.
 
-The infrastructure of the fall
-Allures me a thousand different ways,
-But following Him narrows all
-The paths that lead to better days.
+The world presents ten thousand ways
+To get what it says I'm longing for,
+But following Him through all my days
+Reveals the one and narrow door.
 
-In flow, I feel Him take the wheel,
+In flow, His presence guides the wheel,
 When self-consciousness melts away.
 This harmony is what feels real—
 Christ's Way becoming my today.
 
 To see as He sees, think His thoughts,
 To act as He would in my place,
-Not claiming the perfection wrought
+Not claiming the perfection brought
 By His redeeming, saving grace.
 
 But opening to the Truth He is—
@@ -54,10 +54,10 @@ The Logos ordering all things right,
 Where every moment becomes His,
 And narrow paths lead into light.
 
-This is what following Christ means:
-Not just belief but transformation,
-Where the soul's deepest longing leans
-Toward divine participation.
+To walk with Christ is more than faith—
+It's life remade from deep within,
+Where every step along His path
+Becomes the place where grace begins.
 
 ---
 

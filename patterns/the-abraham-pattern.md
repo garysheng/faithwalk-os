@@ -38,18 +38,6 @@ God often reveals His plans step-by-step rather than all at once. He calls peopl
 
 **The disciples' journey: simple call to follow → gradual training through walking together → true mission revealed after resurrection → power given after obedient waiting.**
 
-## Modern Saint Example: St. Paisios
-
-**Step 1 - Early Spiritual Crisis:** As a youth named Arsenios, he was troubled by skepticism after hearing Darwinian theories. He desperately sought a sign from God, praying fervently but receiving no immediate answer or clarity about his faith.
-
-**Step 2 - Surrender Before Revelation:** Only after he surrendered his insistence on a sign and resolved to follow Christ out of love—even without further proof—did Christ appear to him in a vision. God revealed Himself only after the test of faith, not before.
-
-**Step 3 - Gradual Monastic Formation:** Throughout his formative years, Paisios underwent prolonged periods of uncertainty and spiritual warfare. He learned obedience to spiritual elders and humility, discovering God's will step by step through prayer and ongoing challenges rather than receiving instant knowledge about his future path.
-
-**Step 4 - Hidden Service Emerges:** His route included apparent detours, illness, and hidden years of labor. The fruits of his sanctity weren't immediately obvious but emerged as he responded, one act at a time, to needs placed before him. His spiritual influence became clear only through decades of faithful service.
-
-**St. Paisios' journey: spiritual crisis without immediate answers → surrender rewarded with revelation → gradual formation through trials → hidden faithfulness revealed as lasting influence.**
-
 ## Modern Example: Starting a Ministry
 
 Someone feels called to serve others but doesn't see the full plan. They begin with simple acts of service—visiting elderly neighbors, helping at church, or mentoring youth. As they faithfully take these initial steps, God opens new doors: opportunities to lead, resources appearing, connections forming. The full ministry vision emerges through walking in obedience, not through detailed advance planning.

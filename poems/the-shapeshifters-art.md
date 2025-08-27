@@ -9,10 +9,10 @@ Never creating—only counterfeiting calls.
 He takes what God made good and true and right,
 Twists kernels of truth into blinding light.
 
-Socialism's care for brotherhood,
-Satan makes it state-worship's shrine,
-Where millions die for the Party line,
-And love becomes servitude.
+Socialism's care for brothers' good,
+Satan conjures an unholy priesthood.
+Where millions die for Party's call,
+And "Equality!" creates bondage for all
 
 Nationalism's love of soil and kin,
 Satan twists into racial sin—

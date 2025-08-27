@@ -16,12 +16,12 @@ But Christ as Logos speaks within my heart:
 
 Options glitter, promising the best,
 A thousand mirage doors that might have been;
-Their dazzle puts my faith to the test—
+Their dazzle puts my faith to test—
 Which path leads out, which deeper in?
 
 But here's the comfort I have found:
-He didn't leave us here alone
-To plant our lives in sacred ground—
+He didn't leave me here alone
+To plant my life in sacred ground—
 He shows which seeds should there be sown.
 
 He designed me with a purpose true,

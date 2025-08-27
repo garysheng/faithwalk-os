@@ -4,11 +4,27 @@ God often reveals His plans step-by-step rather than all at once. He calls peopl
 
 ## Biblical Example: Abraham
 
-God called Abraham to leave his country without revealing the final destination—He simply said "Go to the land I will show you" *(Genesis 12:1)*. Abraham had to step out in obedience first. As he walked forward in faith, God progressively revealed more details: the promises of descendants, the specific land, and the covenant blessings. Abraham received the full picture only through continued obedience, not upfront knowledge.
+**Step 1 - The Initial Call:** God told Abraham "Go from your country, your people and your father's household to the land I will show you" *(Genesis 12:1)*. Notice God didn't say "Go to Canaan" or give him a map. Abraham had to leave everything familiar with only a vague promise of "a land I will show you."
+
+**Step 2 - Basic Promise Given:** Only after Abraham obeyed and left Haran did God reveal the next layer: "To your offspring I will give this land" *(Genesis 12:7)*. Abraham still didn't know how this would happen—he was 75 and childless.
+
+**Step 3 - Covenant Details Emerge:** Years later, after more obedience through various tests, God expanded the promise: descendants as numerous as stars, specific land boundaries, and the covenant ritual *(Genesis 15)*. But Abraham still waited 25 more years for Isaac.
+
+**Step 4 - The Ultimate Test:** Only after decades of faithful walking did God reveal the final test—sacrifice Isaac *(Genesis 22)*. Abraham had learned to trust God's character so deeply that he believed God would provide, even if it meant resurrection *(Hebrews 11:19)*.
+
+**Abraham's journey: initial vague call → basic promise after obedience → expanded details through continued faithfulness → ultimate purpose revealed through deepest test.**
 
 ## Another Biblical Example: Moses at the Red Sea
 
-When the Israelites faced the Red Sea with Pharaoh's army approaching, God didn't split the waters in advance. He told Moses to stretch out his hand over the sea *(Exodus 14:16)*, requiring the first step of obedience before the miracle. The deliverance became evident only as they moved forward in faith—the waters parted as they approached, not before.
+**Step 1 - Impossible Situation:** The Israelites were trapped between Pharaoh's army and the Red Sea. God didn't immediately explain His rescue plan or split the waters in advance. Instead, He told Moses "Why are you crying out to me? Tell the Israelites to move forward" *(Exodus 14:15)*.
+
+**Step 2 - Obedience Required First:** God instructed Moses to "raise your staff and stretch out your hand over the sea" *(Exodus 14:16)*. Moses had to take the action of faith—lifting his staff toward impossible waters—before seeing any results.
+
+**Step 3 - Miracle Follows Obedience:** Only after Moses stretched out his hand did God drive back the sea with strong east winds all night *(Exodus 14:21)*. The path appeared as they stepped forward in faith, not before.
+
+**Step 4 - Complete Deliverance Revealed:** As the Israelites walked through on dry ground, the full scope of God's plan became clear—not just escape, but the complete destruction of Egypt's army and a powerful demonstration of God's supremacy *(Exodus 14:28-31)*.
+
+**Moses' experience: impossible situation → command to move forward → obedient action required → miracle revealed → full deliverance accomplished.**
 
 ## Modern Example: Starting a Ministry
 

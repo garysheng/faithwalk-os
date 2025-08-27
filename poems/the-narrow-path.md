@@ -1,7 +1,6 @@
 # The Narrow Path
 
 *A poem about the joy of trying to move how Christ calls us to move*
----
 
 Among the trillion paths I could have walked,
 Through thousands of daily choices made,

@@ -4,10 +4,10 @@
 
 ---
 
-The Shapeshifter weaves through time's design,
-Takes sacred truth and makes it shine—
-But twisted from its holy source,
-Each counterfeit gains deadly force.
+The Shapeshifter prowls through history's maze,
+Never creating from scratch—only fakes and frays.
+He takes what God made good and true,
+Twists sacred light to serve his darker view.
 
 Socialism's care for brothers' good,
 Satan conjures an unholy priesthood.

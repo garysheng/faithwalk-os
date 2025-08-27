@@ -12,7 +12,7 @@ With Him whose wisdom will not fade.
 Free will feels overwhelming at the start—
 Infinite versions of myself could be,
 But Christ as Logos speaks within my heart:
-"There's only one choice that will set you free."
+"Only one path forward will set you free."
 
 Options glitter, promising the best,
 A thousand mirage doors that might have been;

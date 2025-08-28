@@ -8,8 +8,8 @@ But Satan captured what we need—
 The systems meant to form us right.
 
 He seized what's good but changed the core—
-Education should nurture call,
-Instead it trains us to adore
+Schools should help kids hear God's call,
+Instead it trains them to adore
 Obedient work that makes souls small.
 
 Work was meant to serve our gifts,

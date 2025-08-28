@@ -9,8 +9,8 @@ The systems meant to form us right.
 
 He seized what's good but changed the core—
 Schools should help kids hear God's call,
-Instead it trains them to adore
-Obedient work that makes souls small.
+Instead they train them to adore
+Soul-crushing work that keeps them small.
 
 Work was meant to serve our gifts,
 Advance the Kingdom we hold dear,

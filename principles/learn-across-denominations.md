@@ -1,6 +1,6 @@
-# Appreciate Each Denomination’s Gifts
+# Learn Across Denominations
 
-*Orthodox traditions, Catholic scholarship, Baptist gospel music, Pentecostal spiritual gifts, Latter-day Saint community building, Lutheran Bible study.*
+*Christendom gives us lots to appreciate. Orthodox traditions, Catholic scholarship, Baptist gospel music, Pentecostal spiritual gifts, Puritan Prayers, and more.*
 
 ![Flowers](../artworks/flowers.png)
 

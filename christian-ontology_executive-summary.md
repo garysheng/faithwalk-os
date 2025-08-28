@@ -56,7 +56,7 @@ The Bible is TMH's instructions on reality's nature and what you're called to do
 
 Different Christian groups include different books with different translations.
 
-While there are many denominations of Christianity, commonalities include worship, baptism, communion, and fellowship. *[See: Appreciate Each Denomination's Gifts](principles/appreciate-each-denominations-gifts.md)*
+While there are many denominations of Christianity, commonalities include worship, baptism, communion, and fellowship. *[See: Learn Across Denominations](principles/learn-across-denominations.md)*
 
 Biblical reading principles I follow:
 - All Scripture is God‑breathed and sufficient for equipping believers (2 Timothy 3:16–17)

@@ -40,7 +40,7 @@ Here are a few examples of wise elders that have shaped me:
 
 No single denomination contains all the elders worth learning from. Each has profound wisdom—and serious failings. Don’t let labels limit your learning. Test teaching by Scripture and fruit, not affiliation. When you find elders who resonate, go deep.
 
-For a practical lens on learning across traditions without idolizing any one stream, see *[Appreciate Each Denomination’s Gifts](appreciate-each-denominations-gifts.md).*
+For a practical lens on learning across traditions without idolizing any one stream, see *[Learn Across Denomination](learn-across-denominations.md).*
 
 ## The Practice of Discerning Who To Learn From
 

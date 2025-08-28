@@ -1,6 +1,6 @@
 # The Great Deformation
 
-***A poem about how Satan systematically corrupts every form meant to nurture God's children***
+***A poem about how Satan has hijacked our systems for forming God's children***
 
 Each child born carries Heaven's seed,
 Designed for holiness and light,

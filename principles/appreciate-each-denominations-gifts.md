@@ -28,9 +28,19 @@ I've spent the last couple years visiting different denominations' churches and 
 
 ## Denominational Corruption to Avoid
 
-Some denominations promote bad theology through corrupted biblical interpretation. The Scofield Reference Bible, for example, convinced millions that modern Israel represents biblical Israel, fueling geopolitical readings of prophecy that can confuse earthly politics with spiritual truth and have been used to justify genocidal wars.
+A persistent danger is that satanic influences can corrupt any denomination over time, even those that served God faithfully for centuries. Age and tradition don't guarantee theological purity.
 
-Satanic influences can corrupt any denomination over time, even those that served God faithfully for centuries. Age and tradition don't guarantee theological purity.
+Some denominations promote bad theology through corrupted biblical interpretation. The Scofield Reference Bible, for example, convinced millions that modern Israel represents biblical Israel, fueling geopolitical readings of prophecy that can confuse earthly politics with spiritual truth and have been used to justify genocidal wars. (If you think I'm wrong for making this characterization, let me know.)
+
+Another danger related to the conversation on denominations lies in believers mistaking form for essence. As Jordan Hall observes: "We are almost always betrayed when we take the form for the essence. We are definitely always betrayed when the form takes itself as the essence and begins to perpetuate itself at the cost of the essence." ([source](https://www.youtube.com/watch?v=zC7tFJTEv6s&t=1724s&ab_channel=RossByrd))
+
+This happens when denominations lose track that the form is not the thing and the form begins to attract power to itself and take itself as being the thing. It's a subtle process—you can convince yourself for years that you're serving Christ when you're actually mostly serving institutional forms (that may have deviated from the essence for power).
+
+Hall illustrates this with a helpful analogy: "Think how absurd it would be if you were to say hey would you be interested in having a conversation with me and my first question was well what recording technology are we going to use... imagine if I was like well screw Riverside dude I only do Zoom calls I will not communicate with you on Riverside." That's exactly what happens when we make denominational forms ultimate rather than instrumental.
+
+When asked "which church" can govern society properly, Hall responds: "I mean the church. I mean the Ecclesia... the Ecclesia is the ones that have been called out... The church is bigger than the form of the church into which it has been poured in a given context."
+
+That seems right to me.
 
 ## My Approach to Denominational Learning
 

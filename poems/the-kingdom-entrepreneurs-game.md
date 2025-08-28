@@ -3,7 +3,7 @@
 ***A poem for those called to build wealth righteously, abandoning scam economies for God's abundance***
 
 We know that money can corrupt the soul,
-And make even the kind hearted fall,
+And make even the kind-hearted fall,
 But believing poverty makes one pure and whole—
 Is a lie that enslaves us all.
 

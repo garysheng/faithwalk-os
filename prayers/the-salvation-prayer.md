@@ -36,8 +36,8 @@ I am right with you again.
 
 Thank you, Lord Jesus.
 
-Now, set me a flame of fire.  
-Heal my body.  
+Now, set me aflame with your fire.  
+Heal my body.
 Restore my body.
 
 Thank you, Father.  
@@ -50,6 +50,7 @@ Thank you for loving me.
 I love you, Lord.
 
 In Jesus' name.  
+
 **Amen.**
 
 ---

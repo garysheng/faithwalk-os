@@ -87,7 +87,7 @@ This is "EVERYONE gets to be the hero of their own story
 While playing supporting roles in everyone else's!"
 
 Love our Father with all your heart, soul, and mind,
-and love the other characters like you're loving yourself!
+And love the other characters like you're loving yourself!
 
 God didn't create extras,
 He didn't make background characters,

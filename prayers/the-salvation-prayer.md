@@ -2,7 +2,7 @@
 
 ---
 
-***Recite this to redidate yourself to Christ too.***
+***Good for people devoting their lives to Christ. Also good for rededicating oneself to Christ.***
 
 Father, I believe.  
 And I receive these words in Jesus' name.

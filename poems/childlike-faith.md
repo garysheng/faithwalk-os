@@ -5,7 +5,6 @@
 We are SO lucky—
 Like, do you even realize what's happening here?
 
-We're ants in the most EPIC ant farm ever created,
 We're players in the most immersive video game of all time,
 We're characters in the greatest story ever told—
 And we GET to be in it!

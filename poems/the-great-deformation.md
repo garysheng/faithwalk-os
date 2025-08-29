@@ -39,7 +39,7 @@ To capture every single soul.
 
 But cycles break when darkness flees,
 When we can see the systems clear—
-We'll build new forms that help us seize
+We'll build new systems that help us seize
 The Truth that casts out fear.
 
 Strongholds of holy formation,

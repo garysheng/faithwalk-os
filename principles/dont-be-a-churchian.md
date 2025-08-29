@@ -32,6 +32,8 @@ Real discipleship costs everything cultural Christianity promises to protect.
 
 **Your identity as a good person.** Following Christ requires admitting you're spiritually dead without Him. Churchianity lets you see yourself as basically good with minor flaws.
 
+**Your comfortable, adult cynicism.** True faith requires childlike wonder and trust—believing God's promises with the excitement of a five-year-old who knows Dad has everything handled. Churchians have learned to sound spiritual while maintaining adult skepticism about God's actual power and goodness. You can feel it in their spirit—the absence of real faith, the lack of genuine expectation that God will move. *[See: Childlike Faith](../poems/childlike-faith.md) for what authentic, joyful trust in God actually looks like.*
+
 The narrow path isn't narrow because God is exclusive—it's narrow because most people, including most church attenders, choose the wide road of comfortable compromise.
 
 ## Building Authentic Discipleship Infrastructure

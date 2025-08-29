@@ -22,7 +22,9 @@ Salvation comes by grace (TMH loving you), through faith (you loving TMH back), 
 
 Yeshua is both savior and Lord—He died for our sins, rose from the dead, and provides the only path to salvation. He currently intercedes for believers and will return as judge and king. The greatest commandments are loving God completely and loving your neighbor as yourself.
 
-Most people who call themselves Christians but don't live like they fear TMH are lukewarm Christians or what I call 'Churchians'. Don't model yourself after them. Also, many "Christian" leaders are actually agents of Satan operating within church networks and seats of power. *[See: Don’t Be A Churchian](principles/dont-be-a-churchian.md).* 
+True faith means trusting God's promises with childlike wonder and excitement—like a five-year-old who knows Dad has everything handled. This may seem irrational to those trapped in secular thinking, but it's actually the most rational response to understanding who God really is and what He's promised His children. *[See: Childlike Faith](poems/childlike-faith.md) for a celebration of the joyful, trusting faith that moves mountains and transforms ordinary life into the epic adventure it was designed to be.*
+
+Most people who call themselves Christians but don't live like they fear TMH are lukewarm Christians or what I call 'Churchians'—they typically have little actual faith and you can feel it in their spirit. Don't model yourself after them. Also, many "Christian" leaders are actually agents of Satan operating within church networks and seats of power. *[See: Don't Be A Churchian](principles/dont-be-a-churchian.md).* 
 
 ## Spiritual Warfare Is Real
 
@@ -51,6 +53,8 @@ Music carries spiritual frequency that affects your connection to God. Your hear
 Miracles happen in this temporary realm: healing, prophecy, controlling nature, reading minds, seeing across time and space. TMH speaks to those who can steward revelation—the pure in heart, humble, obedient, reliable, and patient. If He can trust you with a whisper, He will trust you with more.
 
 Rather than begging for mercy, believers can demand divine intervention as their covenant right. God's justice system includes recompense—divine compensation for every injustice, theft, and suffering inflicted by evil. This compensation includes receiving miracles. You are not a beggar but an heir with legal standing to claim what rightfully belongs to you. *[See: Demand Divine Intervention](principles/demand-divine-intervention.md) for understanding how to operate in recompense theology and claim your inheritance.*
+
+
 
 ## The Biblical Foundation
 

@@ -50,6 +50,8 @@ Music carries spiritual frequency that affects your connection to God. Your hear
 
 Miracles happen in this temporary realm: healing, prophecy, controlling nature, reading minds, seeing across time and space. TMH speaks to those who can steward revelation—the pure in heart, humble, obedient, reliable, and patient. If He can trust you with a whisper, He will trust you with more.
 
+Rather than begging for mercy, believers can demand divine intervention as their covenant right. God's justice system includes recompense—divine compensation for every injustice, theft, and suffering inflicted by evil. This compensation includes receiving miracles. You are not a beggar but an heir with legal standing to claim what rightfully belongs to you. *[See: Demand Divine Intervention](principles/demand-divine-intervention.md) for understanding how to operate in recompense theology and claim your inheritance.*
+
 ## The Biblical Foundation
 
 The Bible is TMH's instructions on reality's nature and what you're called to do as His creation. It's dense with parables and symbolic language, decoded through spiritual elders and the Holy Spirit as you grow in obedience. *[See: Study Wise Spiritual Elders](principles/study-wise-spiritual-elders.md)*

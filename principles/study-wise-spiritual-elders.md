@@ -36,6 +36,8 @@ Here are a few examples of wise elders that have shaped me:
 
 - M. Scott Peck. His book "People of the Lie" offers profound insights into the nature of human evil and the hope for healing. As a psychiatrist and spiritual seeker, Peck bridges psychology and spirituality in ways that illuminate both the darkness we face and the light that can overcome it. His exploration of evil as a refusal to face one's own failures resonates deeply with Christian understanding of sin and redemption.
 
+- Apostle Delmar Coward Jr. His ministry demonstrates radical faith that demands results and refuses religious limitation. His teaching on "recompense"—God's promise to compensate His people for everything the devil has stolen—challenges conventional Christianity. Through documented miracles, healings, and deliverances, he shows that supernatural manifestations should be the normal Christian experience, not rare exceptions. His uncompromising approach to spiritual warfare and divine authority offers practical wisdom for believers who refuse to accept defeat.
+
 - My friend Peter Han—his Tree of Life vs. Tree of Knowledge teaching reshaped how I trust God with money and work.
 
 No single denomination contains all the elders worth learning from. Each has profound wisdom—and serious failings. Don’t let labels limit your learning. Test teaching by Scripture and fruit, not affiliation. When you find elders who resonate, go deep.

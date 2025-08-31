@@ -38,11 +38,13 @@ Christians are not called to be passive in the face of evil—we're called to ac
 
 For practical steps to disentangle from cultural systems—and from relationships and rhythms that keep you compromised—*[see: Sever Your Ties With Modern Culture](principles/sever-your-ties-with-modern-culture.md).* 
 
-## The Two Masters Problem
+## Rules of Work & Money in God's Reality
 
-Matthew 6:24 reveals the core issue: "No one can serve two masters." You cannot worship money while wanting TMH's favor. You cannot serve TMH while optimizing for worldly approval. These competing loyalties create internal contradiction that destroys spiritual clarity and practical effectiveness.
+Matthew 6:24 establishes a fundamental rule: "No one can serve two masters." You cannot worship money while seeking TMH's favor, nor serve TMH while optimizing for worldly approval. These competing loyalties create internal contradictions that destroy spiritual clarity and practical effectiveness. This does not mean believers cannot gain wealth—rather, wealth should serve God's purposes, not become an idol.
 
 There are two ways to make a living: the atheistic way of toil and strain, or the Kingdom way of faith and flow. TMH provides what you need for your calling if you follow His will, though this doesn't guarantee financial wealth for everyone. *[See: Eat From the Tree of Life, Not Knowledge](principles/eat-from-the-tree-of-life-not-knowledge.md)* for a practical framework on moving from self-reliance to Spirit-led trust. He knows when you're ready to be a divine wealth steward.
+
+God's economy operates through principles of sowing and reaping, where faithful tithing establishes your covenant rights and offerings multiply your harvest. *[See: Sow Your Seeds Faithfully](principles/sow-your-seeds-faithfully.md) for understanding how to partner with God's financial system through seedtime and harvest.*
 
 ## Divine Communication and Miracles
 
@@ -53,8 +55,6 @@ Music carries spiritual frequency that affects your connection to God. Your hear
 Miracles happen in this temporary realm: healing, prophecy, controlling nature, reading minds, seeing across time and space. TMH speaks to those who can steward revelation—the pure in heart, humble, obedient, reliable, and patient. If He can trust you with a whisper, He will trust you with more.
 
 Rather than begging for mercy, believers can demand divine intervention as their covenant right. God's justice system includes recompense—divine compensation for every injustice, theft, and suffering inflicted by evil. This compensation includes receiving miracles. You are not a beggar but an heir with legal standing to claim what rightfully belongs to you. *[See: Demand Divine Intervention](principles/demand-divine-intervention.md) for understanding how to operate in recompense theology and claim your inheritance.*
-
-
 
 ## The Biblical Foundation
 

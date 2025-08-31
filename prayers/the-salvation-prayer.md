@@ -4,6 +4,12 @@
 
 ***Good for people devoting their lives to Christ. Also good for rededicating oneself to Christ.***
 
+This format of prayer is biblical. Romans 10:9-10 says: "If you confess with your mouth the Lord Jesus and believe in your heart that God has raised Him from the dead, you will be saved. For with the heart one believes unto righteousness, and with the mouth confession is made unto salvation."
+
+You can receive Him today. It's not hard. All of God's blessings and the benefits of salvation can be yours if you receive Him into your heart.
+
+---
+
 Father, I believe.  
 And I receive these words in Jesus' name.
 

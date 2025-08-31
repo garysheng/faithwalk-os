@@ -21,6 +21,13 @@ This victory over death established his uncompromising stance: "There's no sickn
 - Cast out the spirit of Down syndrome from a young man who was transformed overnight
 - Laid hands on a woman dying from AIDS who was completely healed within two weeks
 
+**Healing Methodology:** His healing approach combines faith activation with practical methods:
+- **Visualization**: "See yourself with what you want... You can have what you see" - guiding recipients to visualize wholeness before manifestation
+- **Direct Commands**: Speaking directly to sickness ("Arthritis, you bow down") and declaring body parts "brand new"
+- **Anointing Oil & Laying on Hands**: Physical application with prayers, enhanced by angelic assistance
+- **Remote Healing**: Faith operates without distance limitations, healing people via phone declarations
+- **Corporate Atmosphere**: Building expectation through worship, testimonies, and group faith
+
 **Spiritual Warfare Authority:** His ministry demonstrates practical spiritual warfare. During one encounter, a demon-possessed man couldn't see through the blood of Jesus that Coward had pleaded over another person: "He said, there's blood on that man... And it was the blood of Jesus that I plead over that man that he couldn't even see through."
 
 **Prison Ministry Impact:** When Encounter ministry enters maximum security prisons, supernatural transformation follows. "When we were coming into the prison, everybody was on good behavior... There ain't no cutting, no shanking... because they want to come to the meeting." Even broken fans begin working supernaturally during their services.
@@ -28,6 +35,10 @@ This victory over death established his uncompromising stance: "There's no sickn
 **Prosperity as Divine Right:** Coward teaches that God desires His children to prosper: "My God is going to make me rich... I don't care if the money comes through a pain, through a train, or through a crane. It's coming. Why? Because God said so." This isn't greed but understanding divine inheritance.
 
 **Faith Mechanics:** He emphasizes the power of spoken words to activate faith: "Your mouth activates your faith... It takes words to activate your faith... Everything happens because of a word that's spoken."
+
+**Faith as Transportation System:** Coward teaches that "Faith trumps time... It reaches places we can't go." Faith is always "NOW"—not future-oriented—serving as a transportation system that brings heavenly realities into the present moment, superseding time and space.
+
+**Two Systems Theology:** He distinguishes between the devil's system (designed to keep you down) and God's kingdom system (a "no-lose system" that lifts you up). Believers are "thermostats" who change environments through faith, not "thermometers" that accept circumstances.
 
 **Practical Spiritual Protection:** Provides red mantles for protection, declaring: "God told me that something crazy was going to happen, some diseases, some things are going to happen. And if you put that mantle above your doorpost, then no devil will be able to come in."
 
@@ -38,6 +49,10 @@ This victory over death established his uncompromising stance: "There's no sickn
 **Kingdom Identity Declaration:** Services conclude with believers declaring: "I am Kingdom. I know the word. I believe the word. I speak the word and I receive the word. I know who I am. I am a child of God. I am Kingdom."
 
 **Faith Activation Prayers:** Coward leads believers in specific declarations for breakthrough, healing, and divine compensation, teaching them to "make the devil pay the damages."
+
+**Supernatural Longevity Teaching:** Based on biblical mathematics (Genesis 6:3 + Proverbs 3:2), Coward teaches believers can claim a 145-year lifespan through faith declarations, positioning longevity as covenant promise rather than wishful thinking.
+
+**Persistence in Prayer:** References Daniel's 21-day prayer battle against spiritual resistance, emphasizing that breakthrough often requires sustained faith declarations until manifestation occurs.
 
 ## Legacy & Learn More
 

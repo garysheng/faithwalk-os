@@ -177,7 +177,9 @@ Contemporary accounts of [miraculous healings](https://simonguillebaud.com/stunn
 - Answers to prayer that defy statistical probability
 - Mass evangelistic events accompanied by supernatural phenomena
 
-My own experience with the healing ceremony fits this pattern of modern miraculous intervention.
+Modern apostles like [Delmar Coward Jr.](profiles/delmar-coward-jr.md) demonstrate this supernatural reality in practice. His ministry has documented miraculous healings including casting out the spirit of Down syndrome from a young man who was transformed overnight, healing a woman dying from AIDS who was completely healed within two weeks, and praying for an autistic child who went from making 20s in school to 90s after deliverance. Coward's approach to faith—operating in absolute authority with no room for religious limitation—exemplifies what happens when believers understand their covenant rights and demand divine intervention rather than begging for mercy.
+
+Also, my own experience with the healing ceremony fits this pattern of modern miraculous intervention.
 
 Another category of experiential evidence that particularly intrigued me as someone interested in consciousness and the nature of reality came from studying near-death experiences.
 

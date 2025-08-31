@@ -46,6 +46,8 @@ God owes you wealth to compensate for poverty, lack, and financial oppression. T
 - **Sevenfold Return**: Based on biblical restitution principles  
 - **Supernatural Provision**: Angels as reapers bringing in your harvest
 
+Your covenant standing through faithful tithing gives you legal authority to demand this recompense. *[See: Sow Your Seeds Faithfully](sow-your-seeds-faithfully.md) for understanding how tithing establishes your rights to claim financial breakthrough.*
+
 **Declaration**: "I claim ancestral wealth. I declare sevenfold return on what was stolen. I expect supernatural provision as divine justice."
 
 ### 3. Generational Restoration

@@ -80,7 +80,7 @@ He became the father of many nations.
 And when they encounter ME through you,
 Their lives will never be the same.
 
-You have authority to bind and loose,
+I gave you authority to bind and loose—
 What you bind on earth is bound in heaven,
 What you loose on earth is loosed in heaven.
 

@@ -38,6 +38,8 @@ Here are a few examples of wise elders that have shaped me:
 
 - Apostle Delmar Coward Jr. His ministry demonstrates radical faith that demands results and refuses religious limitation. His teaching on "recompense"—God's promise to compensate His people for everything the devil has stolen—challenges conventional Christianity. Through documented miracles, healings, and deliverances, he shows that supernatural manifestations should be the normal Christian experience, not rare exceptions. His uncompromising approach to spiritual warfare and divine authority offers practical wisdom for believers who refuse to accept defeat.
 
+- Jordan Hall. His journey from secular tech entrepreneur to secular systems change philosopher to committed Christian offers a unique perspective on faith and the meta-crisis. Hall's integration of complex systems thinking with Christian theology provides frameworks for understanding how the church can operate in distributed, decentralized, and centralized modes. His emphasis on "participatory truth" over "propositional truth" and his vision of taking "orders from God" rather than operating strategically challenges conventional approaches to both evangelism and cultural change. His work demonstrates that the deepest philosophical questions ultimately point toward Christ as Logos.
+
 - My friend Peter Han—his Tree of Life vs. Tree of Knowledge teaching reshaped how I trust God with money and work.
 
 No single denomination contains all the elders worth learning from. Each has profound wisdom—and serious failings. Don’t let labels limit your learning. Test teaching by Scripture and fruit, not affiliation. When you find elders who resonate, go deep.

@@ -71,7 +71,13 @@ Biblical reading principles I follow:
 - Read the whole of the Bible to understand parts of the Bible
 - Practice translation humility—compare trustworthy translations; when possible, consult original‑language tools and wise elders
 
-Baptism through both water and fire is essential for spiritual rebirth and identification with Christ's death and resurrection. Holy Communion is Christ's direct command—eating His flesh and drinking His blood gives eternal life and creates abiding union with Him. Demons will do anything to prevent these because they know how powerful this unity with Christ is.
+Baptism through both water and fire is essential for spiritual rebirth and identification with Christ's death and resurrection. Water baptism symbolizes dying to self; Holy Spirit baptism (fire) purifies and empowers for supernatural ministry. This baptism of fire can unlock spiritual gifts like speaking in tongues, prophecy, divine healing, and miraculous signs—the same power that fell on the Day of Pentecost.
+
+The Azusa Street Revival demonstrated what happens when believers hunger for the fullness of God's Spirit—supernatural Christianity restored to its biblical foundation. *[See: William J. Seymour](profiles/william-j-seymour.md).* Pentecostal movements continue because Acts 2:39's promise remains active. Signs and wonders didn't cease with the apostolic age—that's religious tradition contradicting Scripture.
+
+TMH continues anointing apostles and fivefold ministers today. Don't let cessationist theology rob you of your inheritance—the gifts are available to every Spirit-filled believer who earnestly desires them for God's glory.
+
+Holy Communion is Christ's direct command—eating His flesh and drinking His blood gives eternal life and creates abiding union with Him. Demons will do anything to prevent both Spirit baptism and communion because they know how powerful this unity with Christ becomes.
 
 ## This Moment Calls for Christofuturists To Help Lead The Way
 

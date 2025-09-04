@@ -10,6 +10,7 @@ Porn sites,
 Therapists,
 Dating apps,
 Internet gurus,
+Food conglomerates,
 Three letter agencies,
 And of course...
 Foreign governments.
@@ -30,12 +31,14 @@ Have these people, organizations, and algorithms
 Been hijacked by the devil?
 Or are they acting on their own?
 
-Ultimately, it doesn't matter.
+Ultimately, it doesn't matter
+Whether Satan has tinkered with them or not.
 
-Whether Satan has tinkered with them or not,
 They're all leading you away from the one thing
 That will save your soul.
+Deep down you know it.
 
+And sure,
 The opposing army is stacked.
 But you can fight them,
 And win the war.

@@ -1,6 +1,6 @@
 # Grateful for Your Molding
 
-***A prayer of gratitude for God's perfect process, even when we cannot see His ways***
+***A poetic prayer of gratitude for God's perfect process, even when we cannot see His ways***
 
 Father,
 
@@ -52,11 +52,14 @@ Because I'll finally see
 How much it saved my soul.
 
 Until then, Father,
-I choose gratitude over bitterness,
-Trust over understanding,
-Your will over my comfort.
+I choose to surrender
+And walk with complete faith
+That your will is good for me,
+And my neighbors around the world.
 
-Your ways are perfect,
+Ultimately,
+I've come to trust
+That your ways are perfect,
 Even when they're painful.
 
 Amen.
